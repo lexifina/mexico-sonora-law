@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 11 DE ENERO DE 1982)
-Artículo 50-J.- Los créditos que se otorguen a los trabajadores estarán cubiertos por un seguro para los casos de muerte, que libere a sus beneficiarios de las obligaciones derivadas de los mismos. El costo de este seguro quedará a cargo del acreditado.
+(REFORMADO, B.O. 3 DE JULIO DE 1989)
+Artículo 50-J.- Los actos jurídicos referidos en el artículo 40 de la presente Ley realizados por los trabajadores con fondos suministrados directamente por el Instituto, o con recursos que provengan del Fondo de la Vivienda, o los suministrados por Instituciones de crédito, en sus programas de vivienda de interés social, quedarán exentos de todos los impuestos y derechos estatales.

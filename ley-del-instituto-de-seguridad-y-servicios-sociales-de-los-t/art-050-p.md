@@ -1,2 +1,1 @@
-(ADICIONADO, B.O. 11 DE ENERO DE 1982)
-Artículo 50-P.- Los créditos a los trabajadores a que se refieren las fracciones I y II del artículo 50-A, devengarán un interés del 9% anual sobre saldos insolutos. Si se separan del servicio, el interés del crédito se causará a la tasa del 10 % anual. Tratándose de créditos para la adquisición o construcción de habitaciones, su plazo no será menor de diez, ni mayor de veinte años. Para los otros créditos mencionados en el artículo 50-A fracción I, se pondrán fijar plazos menores a petición del interesado.
+Artículo 50-P.- (DEROGADO, B.O. 3 DE JULIO DE 1989)

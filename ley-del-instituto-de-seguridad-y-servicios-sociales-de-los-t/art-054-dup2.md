@@ -1,0 +1,1 @@
+Artículo 54.- (DEROGADO, B.O. 3 DE JULIO DE 1989)

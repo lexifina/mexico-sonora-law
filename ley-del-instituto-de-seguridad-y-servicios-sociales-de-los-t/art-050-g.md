@@ -1,3 +1,5 @@
-(ADICIONADO, B.O. 11 DE ENERO DE 1982)
-Artículo 50-G.- Para asignar los créditos a los trabajadores, se tomarán en cuenta el número de miembros de la familia, el sueldo o salario o ingreso conyugal, si hay acuerdo por los interesados y las características y precios de venta de las habitaciones disponibles. Para tal efecto, se establecerá un régimen por el Instituto para relacionar los créditos.
-Si dentro de cada grupo de trabajadores en una clasificación semejante, hay varios con el mismo derecho, se asignarán entre éstos los créditos individuales mediante sorteos.
+(REFORMADO, B.O. 3 DE JULIO DE 1989)
+Artículo 50-G.- Son obligaciones del Estado:
+I.- Inscribir a sus trabajadores y beneficiarios del Fondo;
+II.- Efectuar las aportaciones en los términos de la presente Ley y sus Reglamentos; y
+III.- Practicar a los sueldos y salarios de sus trabajadores, los descuentos que se destinen al pago de abonos para cubrir préstamos otorgados por el Fondo, y enterar el importe de dichos descuentos en la forma y términos que señala el artículo 22 de esta Ley.

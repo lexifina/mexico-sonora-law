@@ -1,2 +1,1 @@
-(ADICIONADO, B.O. 11 DE ENERO DE 1982)
-Artículo 50-L.- Cuando un trabajador deje de percibir ingresos por cualquier causa y hubiere recibido un préstamo a cargo del Fondo, se le otorgará una prórroga, sin causa de intereses en los pagos de las amortizaciones que tenga que hacer por concepto de capital e intereses. La prórroga tendrá un plazo máximo de seis meses y terminará anticipadamente cuando el trabajador vuelva a prestar servicios remunerados.
+Artículo 50-L.- (DEROGADO, B.O. 3 DE JULIO DE 1989)

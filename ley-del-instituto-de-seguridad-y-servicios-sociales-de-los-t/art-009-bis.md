@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 3 DE JULIO DE 1989)
+Artículo 9o. BIS.- Los servicios médicos que tiene encomendados el Instituto en los términos de los capítulos relativos a los seguros de enfermedades profesionales, no profesionales y de maternidad, los prestará directamente, o bien, a través de personas físicas o morales con las cuales se hayan celebrado los contratos respectivos.
+En tales casos, las personas que hubieren suscrito esos contratos, estarán obligadas a proporcionar al Instituto los informes y estadísticas médicas o administrativas que éste les solicite, sujetándose a las instrucciones, normas técnicas, inspecciones y vigilancia prescritas por el Instituto.

@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 11 DE ENERO DE 1982)
-Artículo 50-D.- La adquisición de habitaciones por los servidores públicos, propiedad de un tercero, con recursos suministrados por el Fondo o de las construidas por el Instituto con recursos provenientes del mismo, se sujetarán a lo dispuesto en el Artículo 40 de la presente Ley.
+(REFORMADO, B.O. 3 DE JULIO DE 1989)
+Artículo 50-D.- El Instituto deberá mantener en efectivo o en depósitos bancarios a la vista, las cantidades estrictamente necesarias para la realización de sus operaciones diarias, relacionadas con el Fondo de la Vivienda. Los recursos del Fondo, en tanto se aplican a los fines señalados en el artículo 40 de la presente Ley, deberán mantenerse invertidos en las mejores condiciones de rentabilidad.

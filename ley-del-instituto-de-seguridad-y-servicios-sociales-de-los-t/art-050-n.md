@@ -1,3 +1,1 @@
-(ADICIONADO, B.O. 11 DE ENERO DE 1982)
-Artículo 50-N.- El trabajador que deje de prestar servicios a entidades públicas, conforme a lo previsto en el artículo anterior y por quien se hayan hecho aportaciones, tiene derecho a optar por la devolución de sus depósitos o por la continuación de sus derechos y obligaciones con el Fondo, en este último caso, la base para las aportaciones a su cargo, será el 2% del sueldo o salario promedio que hubiere percibido durante los últimos seis meses.
-El derecho a continuar dentro del régimen del Fondo, se pierde si no se ejercita mediante solicitud por escrito presentada de acuerdo con lo que establezca el reglamento correspondiente dentro de un plazo de seis meses contados a partir de la fecha en que, conforme a lo dispuesto por el artículo anterior, se considere que ha dejado de existir la prestación de servicios respectiva.
+Artículo 50-N.- (DEROGADO, B.O. 3 DE JULIO DE 1989)

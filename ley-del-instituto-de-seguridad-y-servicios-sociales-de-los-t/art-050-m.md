@@ -1,3 +1,1 @@
-(ADICIONADO, B.O. 11 DE ENERO DE 1982)
-Artículo 50-M.- Las entidades públicas a que se refiere esta Ley, seguirán haciendo los depósitos para constituir el Fondo de la Vivienda, sobre los sueldos o salarios de los trabajadores que disfruten licencia por enfermedad, en los términos de las leyes que rijan sus relaciones de trabajo; así como de los que sufran suspensión temporal de los efectos de su nombramiento, debiendo suspenderse esos depósitos a partir de la fecha en que cese el pago de salarios.
-La existencia de los supuestos a que se refiere este Artículo y el anterior, deberán comprobarse a satisfacción del instituto.
+Artículo 50-M.- (DEROGADO, B.O. 3 DE JULIO DE 1989)
