@@ -1,1 +1,0 @@
-Artículo 162 Bis. (DEROGADO, B.O. 5 DE MAYO DE 1954)
