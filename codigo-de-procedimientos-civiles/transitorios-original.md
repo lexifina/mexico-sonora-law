@@ -35,3 +35,4 @@ Lic. Manuel Ríos Gómez.
 Lic. Guillermo Acedo Romero.
 Lic. Alberto Gaxiola G.
 Lic. Francisco Duarte Porchas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
