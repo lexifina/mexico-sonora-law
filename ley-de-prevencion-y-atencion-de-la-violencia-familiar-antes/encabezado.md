@@ -1,0 +1,7 @@
+LEY DE PREVENCION Y ATENCION DE LA VIOLENCIA INTRAFAMILIAR PARA EL ESTADO DE SONORA
+Ley publicada en la Edición Especial del Boletín Oficial del Estado de Sonora, el viernes 31 de diciembre de 1999.
+EL C. ARMANDO LOPEZ NOGALES, Gobernador Constitucional del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
+Que el H. Congreso del Estado, se ha servido dirigirme la siguiente LEY:
+NUMERO 193
+EL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE SONORA, EN NOMBRE DEL PUEBLO, DECRETA LA SIGUIENTE
+LEY DE PREVENCION Y ATENCION DE LA VIOLENCIA INTRAFAMILIAR PARA EL ESTADO DE SONORA

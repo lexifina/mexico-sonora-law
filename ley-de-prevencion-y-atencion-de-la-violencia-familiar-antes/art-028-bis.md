@@ -1,0 +1,2 @@
+(F. DE E., B.O. 17 DE FEBRERO DE 2000)
+ARTÍCULO 28 BIS.- Se crean los Consejos para la Prevención, Atención y Tratamiento de la Violencia Intrafamiliar en cada uno de los municipios del Estado, los cuales funcionarán con las mismas características que la presente Ley le otorga al Consejo Estatal, estando presididos por el Presidente Municipal del municipio correspondiente, los que regirán su funcionamiento con base en las disposiciones de esta Ley y su Reglamento.
