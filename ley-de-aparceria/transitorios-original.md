@@ -12,3 +12,4 @@ Palacio de Gobierno del Estado, Hermosillo, Sonora, a diecinueve de octubre de m
 Rodolfo Elías CALLES.
 El Secretario de Gobierno,
 Ing. Ramón RAMOS
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LAS LEYES DE REFORMAS A LA PRESENTE LEY.

@@ -1,0 +1,6 @@
+(ADICIONADO, B.O. 16 DE NOVIEMBRE DE 1932)
+Artículo 3°B.- La participación que en las cosechas de tabaco, chile y caña corresponderá al aparcero, será:
+A.- Cuando se le proporcione tierra y agua, percibirá el 90 por ciento de las cosechas de tabaco y chile, y el 80 por ciento en las de caña si entrega los productos cortados y "enterciados", en el terreno, y el 90 por ciento cuando los entregue transformados en piloncillo o "panocha". La parte que en las cosechas de tabaco y chile corresponda al propietario, será entregada en la labor o predio, ya recolectada, y "ensartado" el segundo de esos productos.
+B.- Si la tierra y el agua fueren de distintos dueños, la parte que en la cosecha corresponde al propietario, se aplicará a la tierra y al agua por mitad.
+C.- Cuando se le entregue tierra que se riegue con agua de comunidad, las participaciones señaladas por la fracción A. de este Artículo, se aumentarán a 95 por ciento, 85 por ciento y 95 por ciento, respectivamente, teniendo el aparcero la obligación de aportar los gastos de que habla la fracción B. del Artículo 2o.
+D.- Si además de tierra y agua el aparcero recibe plantas, bestias e implementos de labranza, las participaciones que fija la fracción A. de este Artículo, se reducirán a 85 por ciento, 75 por ciento y 85 por ciento, respectivamente.
