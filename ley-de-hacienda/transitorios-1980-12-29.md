@@ -1,0 +1,4 @@
+B.O. 29 DE DICIEMBRE DE 1980.
+PRIMERO: Esta Ley entrará en vigor en todo el Estado, el día 1o. de Enero de 1981, previa su publicación en el Boletín Oficial del Estado.
+SEGUNDO: A partir de la fecha en que entren en vigor las reformas, supresiones y ediciones a que esta ley se refiere, quedan sin efecto, las disposiciones administrativas, resoluciones, consultas, interposiciones, autorizaciones o permisos de carácter general a que se hubieren otorgado a título particular, que contravengan o se opongan a lo preceptuado en dichas reformas, supresiones o adiciones.
+TERCERO: Los impuestos, derechos y contribuciones, causados conforme a las disposiciones vigentes con anterioridad a la fecha en que entre en vigor la presente Ley, deberán ser pagados en el monto, forma y plazos establecidos en dichas disposiciones.
