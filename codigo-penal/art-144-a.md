@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 19 DE DICIEMBRE DE 2002)
+ARTICULO 144-A.- Si las conductas a que se refiere el artículo anterior las realiza alguien que sea o haya sido servidor público de alguna Institución de Seguridad Pública, se le aumentará la sanción correspondiente hasta en una mitad más el mínimo y el máximo y se le impondrá, además, destitución, en su caso, e inhabilitación para desempeñar otro empleo, cargo o comisión públicos.
+Al individualizar la pena, además de las circunstancias previstas para tal efecto en este Código, el Juez o Tribunal tomará en cuenta el delito o los delitos que la organización pretendía cometer o hubiere cometido, así como también la circunstancia de que ésta se encuentra integrada parcialmente por menores de edad o incapaces.
