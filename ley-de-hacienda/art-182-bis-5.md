@@ -1,0 +1,6 @@
+(ADICIONADO, B.O. 31 DE DICIEMBRE DE 1977)
+Artículo 182 Bis 5.- Los sujetos de este impuesto deberán registrarse en la oficina recaudadora de su domicilio, dentro de los diez días siguientes a la iniciación de operaciones.
+Capítulo Quinto
+De los Impuestos Sobre Capitales
+Sección Primera
+Del Impuesto Sobre Traslación de Dominio
