@@ -1,0 +1,18 @@
+ARTICULO SEGUNDO.- Se derogan todas aquellas disposiciones que se opongan a las contenidas en la presente Ley.
+Comuníquese al Ejecutivo para su sanción y promulgación.
+SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.
+Hermosillo, Sonora, a 6 de julio de 1993.
+"1993, AÑO DEL MEDIO AMBIENTE Y LA ECOLOGIA."
+LIC. HECTOR CAÑEZ VAZQUEZ.
+DIPUTADO PRESIDENTE.
+LIC. JESUS ENRIQUEZ BURGOS.
+DIPUTADO SECRETARIO.
+ADRIANA ACEVES PACHECO.
+DIPUTADO SECRETARIO.
+POR TANTO, mando se publique en el Boletín Oficial del Estado y se le dé el debido cumplimiento.
+PALACIO DE GOBIERNO, Hermosillo, Sonora, doce de julio de mil novecientos noventa y tres.
+SUFRAGIO EFECTIVO. NO REELECCION.
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO,
+LIC. MANLIO FABIO BELTRONES RIVERA.
+EL SECRETARIO DE GOBIERNO,
+LIC. ROBERTO SANCHEZ CEREZO.
