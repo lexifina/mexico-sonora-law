@@ -1,0 +1,2 @@
+B.O. 4 DE OCTUBRE DE 2004.
+ARTÍCULO ÚNICO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado, previo cómputo que se realice de la aprobación, en su caso, que emitan la mitad más uno de los Ayuntamientos del Estado, a todos los cuales se les deberá notificar lo que corresponda para los efectos del artículo 163 de la Constitución Política Local.
