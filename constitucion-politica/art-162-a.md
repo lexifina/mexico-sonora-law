@@ -1,0 +1,1 @@
+Artículo 162 A. (DEROGADO, B.O. 5 DE AGOSTO DE 1964)
