@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 7 DE JULIO DE 2003)
+ARTICULO 154 BIS F.- Los establecimientos de salud en el Estado autorizados por la Secretaría de Salud para dedicarse a la extracción, análisis, conservación, preparación y suministro de órganos, tejidos y células, así como a trasplantes de órganos y tejidos, deberán contar con un comité interno de trasplantes y con un coordinador de estas acciones, en los términos de la Ley General de Salud.
+Los establecimientos informarán al Registro Estatal de Trasplantes de las acciones que realicen, así como de los donadores, receptores y profesionales que intervengan en los trasplantes, en los términos, forma y periodicidad que señale el Centro Estatal de Trasplantes.
