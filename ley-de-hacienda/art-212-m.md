@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 30 DE DICIEMBRE DE 1996)
+Artículo 212 M.- Los sujetos obligados al pago del impuesto realizarán el pago a más tardar el día 15 del mes siguiente a aquel que corresponda el pago, presentándose la declaración aprobada en la oficina recaudadora que corresponda al domicilio en donde se hayan sido pagados o entregados los premios en el territorio del Estado. Dicho pago se entenderá definitivo.
