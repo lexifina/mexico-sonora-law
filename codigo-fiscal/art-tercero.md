@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- Los asuntos que en materia de comprobación y determinación de contribuciones omitidas, se encuentren en trámite ante las autoridades fiscales, serán concluidos por éstas en los términos de las disposiciones vigentes con anterioridad a la fecha en que entre en vigor el presente Código.
