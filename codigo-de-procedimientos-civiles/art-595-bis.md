@@ -6,6 +6,6 @@ III.- Todas las excepciones deberán hacerse valer en la contestación. Si la pa
 IV.- Los incidentes no suspenderán el procedimiento. Las excepciones y recursos que se interpongan se resolverán en la sentencia definitiva.
 V.- Las pruebas deberán ofrecerse en los escritos de demanda o contestación. Las pruebas supervenientes se regirán por las reglas generales previstas en este Código.
 VI.- Transcurrido el periodo de emplazamiento, dentro de los tres días siguientes se celebrará una audiencia de pruebas y alegatos, citándose a las partes conforme a las reglas de las notificaciones personales, con las prevenciones y apercibimientos que legalmente se requieran. Si no fuere posible desahogar todas las pruebas, la audiencia podrá diferirse por una sola vez por un término no mayor de cinco días.
-El ejercicio de la acción corresponderá al Ministerio úblñi9co y será juez competente el del lugar donde esté el domicilio de la Institución de Beneficencia o Asistencia Social que haya acogido al menor.
+El ejercicio de la acción corresponderá al Ministerio Público y será juez competente el del lugar donde esté el domicilio de la Institución de Beneficencia o Asistencia Social que haya acogido al menor.
 CAPITULO SEPTIMO.
 De la adopción.
