@@ -1,2 +1,2 @@
-(REFORMADO, B.O. 30 DE DICIEMBRE DE 1991)
-Artículo 325 Bis B.- La petición de actas del estado civil de las personas y de los certificados de inexistencia de las mismas que realice la institución del Registro Civil a otro estado, causará un derecho de:$20,000.00
+(REFORMADO, B.O. 31 DE DICIEMBRE DE 1992)
+Artículo 325 Bis B.- La petición de actas del estado civil de las personas y los certificados de inexistencias de las mismas que realice la institución del Registro Civil a otro Estado, causará un derecho de:N$ 30.00

@@ -1,4 +1,3 @@
-(REFORMADO, B.O. 10 DE DICIEMBRE DE 1987)
-Artículo 325 Bis C.- Por la reproducción mecanográfica de las actas se pagará una cuota adicional equivalente al 100% de la cantidad fijada para el servicio que se solicite.
+Artículo 325 Bis C.- (DEROGADO, B.O. 31 DE DICIEMBRE DE 1992)
 Capitulo Décimo Cuarto
 Otros Servicios
