@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 31 DE DICIEMBRE DE 2001)
+ARTICULO 103 BIS A.- El impuesto a que se refiere este capítulo se causará al momento en que se perciban los valores correspondientes a las contraprestaciones por los servicios de hospedaje, incluyendo depósitos, anticipos, gastos, reembolsos, intereses normales o moratorios, penas convencionales y cualquier otro concepto, que deriven de la prestación de dicho servicio.
+Cuando los contribuyentes convengan la prestación de servicios de hospedaje e incluyan servicios accesorios, tales como transportación, comida, uso de instalaciones u otros similares y no desglosen y comprueben la prestación de estos últimos, se entenderá que el valor de la contraprestación respectiva corresponde a servicios de hospedaje.
