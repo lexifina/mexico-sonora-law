@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 11 DE ENERO DE 1982)
+Artículo 50-T.- El Instituto deberá mantener en efectivo o en depósitos bancarios a la vista, las cantidades estrictamente necesarias para la realización de sus operaciones diarias, relacionadas con el Fondo de la Vivienda. Los recursos del Fondo, en tanto se aplican a los fines señalados en el artículo anterior, deberán mantenerse invertidos en las mejores condiciones de rentabilidad.

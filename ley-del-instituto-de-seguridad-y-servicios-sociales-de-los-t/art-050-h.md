@@ -1,0 +1,4 @@
+(ADICIONADO, B.O. 11 DE ENERO DE 1982)
+Artículo 50-H.- Con sujeción a los requisitos que fije la Junta Directiva, se determinarán: Los montos máximos de los créditos que se otorguen, la relación de dichos montos con el sueldo o salario de los trabajadores acreditados, la protección de los préstamos, así como los precios máximos de venta de las habitaciones cuya adquisición o construcción pueda ser objeto de los créditos que se otorguen como cargo al fondo.
+En ningún caso el importe del préstamo que se conceda, ya sea para una sola persona o dos o más en mancomún, podrá exceder del valor total que señale el Banco de México para el financiamiento de vivienda de interés social.
+El avalúo deberá coincidir con los precios unitarios de las tablas generales que el Instituto formulará oportunamente.
