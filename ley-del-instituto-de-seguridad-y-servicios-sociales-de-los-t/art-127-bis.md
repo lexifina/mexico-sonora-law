@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 19 DE MARZO DE 1975)
+Artículo 127 bis.- Los médicos del servicio que expidan incapacidad que resulten improcedentes, conforme a la investigación que practique la autoridad médica del Instituto, por contravenir lo dispuesto en el artículo 31 del Reglamento para los servicios médicos, serán denunciados al Ministerio Público por la responsabilidad que conforme al Código Penal pueda resultar.

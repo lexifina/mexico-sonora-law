@@ -1,7 +1,1 @@
-(ADICIONADO, B.O. 6 DE AGOSTO DE 1969)
-Artículo 88 C.- El pago póstumo extraordinario quedará sujeto a las siguientes Bases:
-PRIMERA.- Al fallecimiento de un trabajador al servicio del Gobierno del Estado o de un trabajador jubilado o pensionado, el Instituto pagará de inmediato la cantidad de $10,000.00, que no estará sujeto a descuento alguno, a la persona o personas que el propio empleado en servicio o jubilado haya designado expresamente para tal fin, sin necesidad de que se demuestre la dependencia económica del o de los beneficiarios; los interesados harán la designación, llenando y autorizando con su firma y huella digital la forma correspondiente, que les será proporcionada, por duplicado, quedando uno de los ejemplares en poder del interesado y el otro depositado en las oficinas del Instituto.
-SEGUNDA.- En defecto de la manifestación expresa a que se refiere el párrafo anterior, para decir qué persona o personas tienen derecho a recibir el pago póstumo, se seguirá el siguiente orden:
-I.- La esposa y los hijos legítimos o naturales que sean menores de dieciocho años y los ascendientes, a menos que se pruebe que no dependían económicamente del empleado;
-II.- A falta de esposa, hijos y ascendientes en los términos de la fracción anterior el pago póstumo se entregará a las personas que, económicamente, dependían parcial o totalmente del empleado, según lo decida el Instituto, en vista de las pruebas rendidas;
-TERCERA.- El pago póstumo beneficia a los deudos de todos los funcionarios, empleados, jubilados o pensionados, aunque en otros aspectos no sean beneficiarios del Instituto ni pertenezcan al Servicio Civil.
+Artículo 88 C.- (DEROGADO, B.O. 19 DE MARZO DE 1975)
