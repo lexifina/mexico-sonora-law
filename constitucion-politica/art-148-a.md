@@ -1,2 +1,3 @@
-(ADICIONADO, B.O. 5 DE MAYO DE 1954)
-Artículo 148 A. De los delitos comunes y oficiales que cometan los funcionarios y empleados no designados especialmente en los artículos anteriores, conocerán los tribunales en la forma ordinaria.
+(REFORMADO, B.O. 9 DE ABRIL DE 1984)
+Artículo 148 A. No se requerirá declaración de procedencia del Congreso del Estado, cuando alguno de los servidores públicos a que se refiere el primer párrafo del Artículo 146 cometa un delito durante el tiempo en que se encuentre separado de su encargo por cualquier causa, ni cuando se trate de demandas de orden civil.
+Si el servidor público ha vuelto a desempeñar sus funciones propias o ha sido nombrado o electo para desempeñar otro cargo distinto, pero de los enumerados en el primer párrafo del Artículo 146, se procederá de acuerdo con lo dispuesto en dicho precepto.
