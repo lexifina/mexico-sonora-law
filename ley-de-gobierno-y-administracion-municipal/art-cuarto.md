@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- Se concede a los Ayuntamientos del Estado un plazo de un año, contado a partir de la entrada en vigor de la presente Ley, para que reformen y en su caso formulen, aprueben y publiquen los reglamentos que deriven de la misma, asegurando la participación ciudadana. Mientras tanto, seguirán vigentes los actuales en lo que no se opongan a este ordenamiento.

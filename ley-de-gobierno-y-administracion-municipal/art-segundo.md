@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- A la entrada en vigor de esta Ley, se abroga la Ley Orgánica de Administración Municipal, publicada en el Boletín Oficial del Gobierno del Estado el 2 de febrero de 1984 y la Ley que regula la Prestación de Servicios Públicos Municipales, publicada en el Boletín Oficial del Gobierno del Estado el 17 de agosto de 1987.

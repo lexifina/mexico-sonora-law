@@ -1,0 +1,1 @@
+ARTICULO DECIMO.- En un plazo no mayor a un año, contado a partir de que entre en vigor la presente Ley, el Congreso del Estado deberá emitir el ordenamiento legal correspondiente, donde se establecerán las bases de organización, funcionamiento, desarrollo, control y evaluación del servicio profesional de carrera para los servidores públicos de la administración municipal.

@@ -1,0 +1,1 @@
+ARTICULO NOVENO.- En la realización de las acciones conducentes al cumplimiento de la presente Ley, se respetarán en todo momento los derechos y obligaciones contraídos previamente con terceros, así como los derechos de los trabajadores estatales y municipales.

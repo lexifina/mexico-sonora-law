@@ -1,0 +1,1 @@
+ARTICULO DECIMO PRIMERO.- En todos los procedimientos administrativos que se encuentren en trámite ante las autoridades municipales, el interesado podrá optar por su continuación conforme al procedimiento vigente durante su iniciación o por la aplicación de esta Ley.
