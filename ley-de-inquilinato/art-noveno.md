@@ -1,0 +1,1 @@
+ARTICULO NOVENO.- El procedimiento a seguir para deducir los derechos que establece esta Ley será el sumario de conformidad con las normas contenidas en el Código de Procedimientos Civiles del Estado, con la modificación que se especifica en el artículo siguiente.

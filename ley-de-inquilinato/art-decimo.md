@@ -1,0 +1,2 @@
+ARTICULO DECIMO.- El recurso de apelación se admitirá sólo en el efecto suspensivo y se tramitará de acuerdo con las siguientes bases: dentro del término de tres días de la fecha en que se haga saber la llegada de los autos, el apelante expresará agravios, los cuales serán contestados dentro de igual plazo por el apelado, citándose de oficio para sentencia, la que se pronunciará dentro de un término de cinco días.
+Si el apelante no expresa agravios en el término señalado, se declarará desierto el recurso, firme la sentencia apelada y se condenará a aquél en costas.

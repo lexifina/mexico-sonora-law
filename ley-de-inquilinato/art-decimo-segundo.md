@@ -1,0 +1,1 @@
+ARTICULO DECIMO SEGUNDO.- En los juicios a que se refiere esta Ley siempre se oirá al Ministerio Público, en atención a que las disposiciones de este Ordenamiento son de orden público y no pueden ser renunciadas.

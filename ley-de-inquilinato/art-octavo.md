@@ -1,0 +1,1 @@
+ARTICULO OCTAVO.- Si el propietario o arrendador dejare de hacer las reparaciones necesarias para el uso a que esté destinada la finca, el inquilino tendrá derecho de solicitar judicialmente la autorización para efectuarlas y deducir su costo del importe de las rentas.
