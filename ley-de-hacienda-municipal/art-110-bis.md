@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 19 DE JULIO DE 1993)
+ARTICULO 110 BIS.- De no celebrarse el Convenio a que se refiere el artículo 109 del presente ordenamiento y en los casos de todos aquellos propietarios y/o posesionarios de predios urbanos y suburbanos que no cuenten con servicio medio o facturado de energía eléctrica, pagarán las cuotas correspondientes, trimestralmente, en los primeros quince días de los meses de marzo, junio, octubre y diciembre de cada año, en las oficinas recaudadoras de la Tesorería Municipal o en las Instituciones autorizadas para el efecto.
