@@ -1,0 +1,1 @@
+Artículo Octavo.- Los sueldos del profesorado del Estado quedan sujetos a las posibilidades del Erario de la Entidad, es decir, a los estipulados en el Presupuesto de Egresos del año correspondiente, respetando y ajustándose en todo caso a las categorías establecidas en el Artículo Tercero de esta Ley.

@@ -1,0 +1,1 @@
+Artículo Cuarto.- Los servicios de que hablan los incisos del Artículo anterior, se refieren exclusivamente a aquellos desempeñados en Escuelas Oficiales o Incorporadas q´ (sic) funcionan en el Estado.

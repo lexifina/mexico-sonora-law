@@ -1,0 +1,1 @@
+Artículo Segundo.- Para los efectos de esta Ley sólo se aceptarán en lo sucesivo como maestros, aspirantes que tengan a su favor cuando menos estudios completos de Enseñanza Secundaria o Título legalizado de Escuela Regional de Campesina, que en este caso se considerarán con igual valor.
