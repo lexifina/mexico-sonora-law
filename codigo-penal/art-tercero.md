@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- Para los efectos señalados en los artículos 26, 85 y 93 fracción IV, y en tanto la legislación procesal correspondiente determine cuáles delitos serán calificados como graves, se entenderá que los preceptos mencionados se refieren a aquéllos delitos sancionados con pena cuyo término medio aritmético excede los cinco años de prisión.

@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- A las personas que hayan cometido un delito, con anterioridad a la entrada en vigor del presente Código, incluidas las procesadas o sentenciadas, les serán aplicables las disposiciones del Código Penal local vigentes en el momento en que éste se haya cometido, sin perjuicio de aplicar, cuando proceda, lo previsto en el artículo 61 del citado Código.

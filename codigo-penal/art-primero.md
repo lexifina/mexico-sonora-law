@@ -1,0 +1,1 @@
+ARTICULO PRIMERO.- El presente Código, previa su publicación en el Boletín Oficial del Gobierno del Estado, entrará en vigor el día 1o. de mayo de 1994, con excepción de lo señalado en el artículo segundo transitorio.
