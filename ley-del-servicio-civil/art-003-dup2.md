@@ -1,0 +1,1 @@
+ARTICULO 3o.- Las disposiciones de la presente ley que impliquen erogaciones pecuniarias, entrarán en vigor, respecto de aquellas dependencias, Municipios o entidades que a la fecha no otorgan las prestaciones respectivas, a partir del próximo ejercicio fiscal, salvo los casos en que las condiciones precarias de su erario no lo permitan, a juicio del Congreso.

@@ -1,0 +1,1 @@
+ARTICULO 4o.- Los reglamentos a que estén sujetas las Comisiones Mixtas de Escalafón continuarán en vigor sin necesidad de sujetarse a la aprobación del Tribunal; pero las modificaciones que se hagan a estos reglamentos o los de nueva creación, estarán sujetos al requisito señalado en el artículo 52 para que adquieran vigencia legal.

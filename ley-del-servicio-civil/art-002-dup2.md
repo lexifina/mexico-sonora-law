@@ -1,0 +1,1 @@
+ARTICULO 2o.- Se abroga la Ley número 29 del Servicio Civil del Estado de Sonora, de fecha 20 de enero de 1947, así como las reformas y adiciones de que fue objeto y todos los acuerdos, reglamentos y disposiciones que se opongan a la presente ley.

@@ -1,0 +1,7 @@
+LEY DEL SERVICIO CIVIL PARA EL ESTADO DE SONORA
+Ley publicada en el Alcance del Boletín Oficial del Estado de Sonora, el sábado 27 de agosto de 1977.
+EL C. LIC. ALEJANDRO CARRILLO MARCOR, GOBERNADOR DEL ESTADO LIBRE Y SOBERANO DE SONORA, a sus habitantes, sabed:
+Que el H. Congreso del Estado, se ha servido dirigirme la siguiente L E Y :
+N U M E R O 40
+EL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE SONORA, EN NOMBRE DEL PUEBLO, DECRETA LA SIGUIENTE
+LEY DEL SERVICIO CIVIL PARA EL ESTADO DE SONORA
