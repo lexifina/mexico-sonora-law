@@ -1,0 +1,10 @@
+LEY DE HACIENDA DEL ESTADO DE SONORA
+Ley publicada en el Boletín Oficial del Estado de Sonora, el viernes 31 de diciembre de 1976
+LIC. ALEJANDRO CARRILLO MARCOR, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes, sabed:
+Que el H. Congreso del Estado, se ha servido dirigirme la siguiente Ley:
+NUMERO 9
+EL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE SONORA, EN NOMBRE DEL PUEBLO DECRETA LA SIGUIENTE
+LEY
+DE HACIENDA DEL ESTADO DE SONORA
+TITULO PRIMERO
+Disposiciones Generales
