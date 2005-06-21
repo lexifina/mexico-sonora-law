@@ -1,2 +1,1 @@
-(ADICIONADO, B.O. 7 DE JULIO DE 2003)
-ARTICULO 154 BIS A.- Los trasplantes de órganos, tejidos y células en seres humanos vivos, la obtención de los mismos, la selección del donante y del receptor y los requisitos del donante, se llevará a cabo de conformidad con la Ley General de Salud, el Reglamento respectivo y esta Ley.
+ARTICULO 154 BIS A.- (DEROGADO POR ARTICULO SEGUNDO TRANSITORIO DE LEY DE DONACION Y TRASPLANTES PARA ORGANISMOS HUMANOS, PUBLICADA EN EL B. O. EL 10 DE JUNIO DE 2005)
