@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- El Ejecutivo del Estado realizará las reasignaciones de recursos necesarias para que el Centro pueda cumplir con sus atribuciones en el presente ejercicio fiscal o, en su caso y para el mismo fin, hará la propuesta respectiva de modificación al Presupuesto de Egresos del Gobierno del Estado para el presente ejercicio fiscal al Congreso del Estado.
