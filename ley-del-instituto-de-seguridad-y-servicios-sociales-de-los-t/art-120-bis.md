@@ -1,0 +1,14 @@
+(ADICIONADO, B.O. 29 DE JUNIO DE 2005)
+Artículo 120 BIS.- Con atribuciones específicas para vigilar el gasto del Instituto y la inversión de sus recursos, así como fiscalizar su aplicación según los programas correspondientes, éste contará con un Comité de Vigilancia y Fiscalización, cuya operación y reglamentación será emitida por la Junta directiva del Instituto, y que estará integrado por un representante de la Secretaría de Hacienda, otro del Sindicato Único de Trabajadores al Servicio de los Poderes del Estado de Sonora, uno de la Sección 54 del Sindicato Nacional de Trabajadores de la Educación, y de los organismos incorporados al régimen de la Ley, un representante elegido de entre las Instituciones de Educación Media Superior y Superior, otro de los Ayuntamientos, otro de los Organismos Públicos Descentralizados y uno más de las organizaciones sindicales, respectivamente.
+Los integrantes del Comité de Vigilancia no podrán ser miembros de la Junta Directiva ni tener cargo alguno en el Instituto, con excepción del Director General de éste, quien fungirá como Secretario Técnico del Comité con derecho a voz pero sin voto.
+Los integrantes del Comité ejercerán su cargo honoríficamente.
+Sin perjuicio de lo establecido por el artículo 121 de esta Ley, el Comité de Vigilancia y Fiscalización tendrá las siguientes atribuciones:
+I.- Exigir y obtener del Director General un informe trimestral sobre el manejo financiero de todos los fondos del Instituto
+II. Exigir y obtener del Director General un informe detallado del comportamiento del sistema de pensiones con la periodicidad que el propio Comité determine.
+III.- Exigir y obtener del Director General un dictamen semestral de los estados financieros del Instituto.
+IV.- Obtener del Contador Mayor de Hacienda del Congreso, o del órgano que lo substituya, información relativa al estado financiero y el resultado de las auditorías, inspecciones y visitas que se le practiquen al Instituto.
+V.- Participar en el procedimiento de contratación de los auditores externos que elaboren los dictámenes sobre los estados financieros del Instituto, con la facultad especial de vetar, con las dos terceras partes del voto del Comité, la contratación de auditores.
+VI.- Definir las acciones que se consideren necesarias y conducentes al cumplimiento de los objetivos y metas del Instituto, según se encuentren previstos en los presupuestos y programas respectivos.
+VII.- Obtener, analizar y, en su caso, opinar sobre la valoración actuarial del Instituto.
+VIII.- Cada vez que lo considere conveniente, examinar la suficiencia de las aportaciones y el cumplimiento de los programas anuales de constitución de reservas.
+IX.- Intervenir como coadyuvante de la Contraloría General en las auditorías y procedimientos de revisión que ésta practique sobre el Instituto.
