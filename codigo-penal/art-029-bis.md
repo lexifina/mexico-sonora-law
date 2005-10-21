@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 19 DE DICIEMBRE DE 2002)
-ARTICULO 29 BIS.- Salvo prueba en contrario y para los efectos del artículo 31 BIS, se considera que siempre existe daño moral en los delitos siguientes: corrupción de menores e incapaces, violación, violencia intrafamiliar, rapto, abusos deshonestos, pornografía infantil, privación ilegal de libertad, secuestro y homicidio.
+(REFORMADO, B.O. 20 DE OCTUBRE DE 2005)
+ARTICULO 29 BIS.- Salvo prueba en contrario y para los efectos del artículo 31 Bis, se considera que siempre existe daño moral en los delitos siguientes: corrupción de menores e incapaces, violación, violencia intrafamiliar, rapto, abusos deshonestos, pornografía infantil, privación ilegal de la libertad, secuestro, homicidio, injurias, difamación, calumnia y chantaje.

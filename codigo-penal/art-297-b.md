@@ -1,3 +1,4 @@
 (ADICIONADO, B.O. 19 DE DICIEMBRE DE 2002)
 ARTICULO 297-B.- Si el agente, espontáneamente, libera al secuestrado, dentro de las setenta y dos horas siguientes a la privación de su libertad, sin lograr alguno de los propósitos del delito y sin que se haya actualizado alguno de los supuestos previstos por los artículos 297, 297 BIS y 297-A, y siempre que no lo haga por causas ajenas a su voluntad, la pena será de uno a seis años de prisión y de veinte a doscientos días multa.
-Si en términos de la hipótesis a que se refiere el párrafo anterior se deja libre a la víctima, después de las setenta y dos horas de haber sido privada de su libertad y siempre que no exceda de diez días, se impondrá al agente la pena de dos a doce años de prisión y de treinta a trescientos días multa.
+(REFORMADO, B.O. 20 DE OCTUBRE DE 2005)
+Si en términos de la hipótesis a que se refiere el párrafo anterior se deja libre a la víctima, después de setenta y dos horas de haber sido privada de su libertad y siempre que no exceda de diez días, se impondrá al agente de tres a doce años de prisión y de treinta a trescientos días multa.

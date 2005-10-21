@@ -1,0 +1,3 @@
+B.O. 20 DE OCTUBRE DE 2005.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- Lo dispuesto en el artículo 87 del Código Penal reformado mediante el presente Decreto, que regula la suspensión condicional de las sanciones, podrá ser aplicado retroactivamente a favor de los sentenciados que se encuentren compurgando condenas que no excedan de tres años de prisión y reúnan los requisitos previstos en los incisos a) a f) de la fracción I de dicho precepto, para lo cual presentarán su petición vía incidental ante el juez que hubiere conocido del proceso.

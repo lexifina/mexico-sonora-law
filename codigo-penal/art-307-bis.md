@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 20 DE OCTUBRE DE 2005)
+ARTÍCULO 307 BIS.- Se impondrá de un mes a seis años de prisión, al que se apodere de una cosa ajena mueble, sin consentimiento de la persona que pueda disponer de ella con arreglo a la ley, cuando se acredite que la tomó para usarla temporalmente y no para apropiársela, ni enajenarla, ni destruirla, ni modificarla, ni para cometer diverso hecho ilícito, y en caso de que se le hubiese requerido a devolverla, no se niegue a ello.
+Cuando en la ejecución del delito previsto en el párrafo anterior se actualice una o mas de las hipótesis contenidas en las fracciones I, IV, VII, VIII, IX y X del artículo 308, la pena aplicable será la establecida en dicho precepto y en su caso en el artículo 309 de este Código.
