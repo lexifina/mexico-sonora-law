@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- Se abroga la Ley de Ganadería para el Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado Número 10, Sección I, el 4 de agosto de 1983, así como todas sus reformas.

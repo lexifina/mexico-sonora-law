@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Durante el plazo que concluye el día 19 de abril de 2007, la Secretaría implementará un programa especial para el efecto de dar a conocer las finalidades y beneficios del Sistema Nacional de Identificación Individual de Ganado y promover su aplicación voluntaria por los ganaderos del Estado.
