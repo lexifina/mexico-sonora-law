@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Dentro de los 90 días siguientes a la precitada publicación, el Titular del Poder Ejecutivo deberá integrar el Consejo Estatal Forestal y expedir los reglamentos previstos expresamente por esta ley.

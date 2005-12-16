@@ -1,0 +1,10 @@
+ARTÍCULO TERCERO.- Se derogan todas las disposiciones que se opongan a la presente ley.
+Comuníquese al Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado.
+SALON DE SESIONES DEL H. CONGRESO DEL ESTADO
+Hermosillo, Sonora, 22 de noviembre de 2005.
+C. LUIS ALBERTO CAÑEZ LIZARRAGA
+DIPUTADO PRESIDENTE
+C. MIGUEL E. POMPA CORELLA
+DIPUTADO SECRETARIO
+C. JORGE A. GASTELUM LOPEZ
+DIPUTADO SECRETARIO
