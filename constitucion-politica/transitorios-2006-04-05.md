@@ -1,0 +1,4 @@
+B.O. 5 DE ABRIL DE 2006.
+ARTÍCULO PRIMERO.- La presente ley entrará en vigor el día de su publicación en el Boletín Oficial del Gobierno del Estado, previo cómputo que se realice de la aprobación o rechazo que emitan los ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente ley para los efectos dispuestos por el artículo 163 de la Constitución Política Local.
+Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que lleve el cómputo respectivo y la remita al Titular del Poder Ejecutivo en caso de resultar aprobada, para su publicación en el Boletín Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- Se derogan todas las disposiciones normativas de naturaleza inferior que se opongan a la presente reforma constitucional.

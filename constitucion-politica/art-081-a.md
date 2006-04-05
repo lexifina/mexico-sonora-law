@@ -1,2 +1,2 @@
-(REFORMADO, B.O. 10 DE DICIEMBRE DE 1992)
-Artículo 81 A. Para ser Secretario de Gobierno se deben reunir los mismos requisitos que para ser Gobernador del Estado. Para ser Secretario de Despacho, se requiere ser mexicano por nacimiento, mayor de treinta años de edad y estar en ejercicio de sus derechos.
+(REFORMADO, B.O. 5 DE ABRIL DE 2006)
+Artículo 81 A. Para ser Secretario de Gobierno deben reunirse los mismos requisitos que para ser Gobernador del Estado. Para ser Secretario de Despacho se requiere ser mexicano por nacimiento, estar en ejercicio de sus derechos y acreditar que, después de haber adquirido la ciudadanía, durante un plazo mínimo de cinco años, se ha desempeñado en la academia, ha ejercido una profesión liberal o técnica, un oficio privado o un cargo público.
