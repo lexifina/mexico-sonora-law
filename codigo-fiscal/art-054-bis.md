@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 29 DE DICIEMBRE DE 2006)
+ARTÍCULO 54 BIS.- Las autoridades fiscales podrán llevar a cabo verificaciones para constatar los datos proporcionados al Registro Estatal de Contribuyentes, relacionados con la identidad, domicilio y demás datos que se hayan manifestado para los efectos de dicho registro, sin que por ello se considere que las autoridades fiscales inician sus facultades de comprobación.
