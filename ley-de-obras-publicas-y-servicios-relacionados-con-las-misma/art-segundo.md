@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- A la entrada en vigor de la presente ley, quedará abrogada la anterior Ley de Obras Públicas del Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado el 23 de agosto de 1984.
