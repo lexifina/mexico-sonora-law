@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 22 DE NOVIEMBRE DE 2007)
+ARTICULO 100 BIS E.- La dirección y administración del Plan, así como la vigilancia y cumplimiento del mismo, estará a cargo de un Comité Técnico, el cual tendrá por objeto planear y establecer procedimientos y lineamientos para el mejor desempeño de lo estipulado en el propio Plan.
+El Comité Técnico se integrará de tres personas cuyos nombramientos deberán realizarse por el Ejecutivo del Estado. El número de integrantes del Comité Técnico podrá aumentar o disminuir de acuerdo a los requerimientos del Plan, siempre que en la especie dicho Comité quede integrado por un número impar de miembros.
