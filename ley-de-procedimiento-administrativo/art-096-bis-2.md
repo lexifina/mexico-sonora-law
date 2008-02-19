@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE NOVIEMBRE DE 2023)
+ARTÍCULO 96 BIS 2. Niñas, niños y adolescentes tienen derecho al acceso y uso seguro del Internet como medio efectivo para ejercer los derechos a la información, comunicación, educación, salud, esparcimiento, no discriminación, entre otros, de conformidad con el principio de interdependencia, en términos de las disposiciones aplicables.

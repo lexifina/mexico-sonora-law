@@ -1,0 +1,4 @@
+P.O. 25 DE NOVIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE REFORMA LA FRACCIÓN II DEL ARTÍCULO 13, EL PÁRRAFO PRIMERO DEL 15, EL 17 Y LA DENOMINACIÓN DEL CAPÍTULO III DEL TÍTULO SEGUNDO, TODOS DE LA LEY DE LOS DERECHOS DE LAS NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE PUEBLA".]
+PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se derogan las disposiciones que se opongan a lo establecido en el presente Decreto.

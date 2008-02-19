@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE NOVIEMBRE DE 2023)
+ARTÍCULO 96 BIS 1. El Estado garantizará a las niñas, niños y adolescentes su integración a la sociedad de la información y el conocimiento, acorde a los fines establecidos en el artículo 3º de la Constitución Política de los Estados Unidos Mexicanos, mediante una política de inclusión digital universal en condiciones de equidad, asequibilidad, disponibilidad, accesibilidad y calidad.
