@@ -8,4 +8,4 @@ La misma pena a que se refiere el párrafo anterior se aplicará al tercero que 
 (ADICIONADO, B.O. 19 DE DICIEMBRE DE 2002)
 Se aplicará una mitad más de la pena señalada en el párrafo primero, a quien ejerciendo la patria potestad o la custodia de un menor o incapaz, injustificadamente otorgue su consentimiento para su ilegítima entrega o cuando lo entregue directamente para su custodia definitiva a cambio de un beneficio económico.
 (ADICIONADO, B.O. 19 DE DICIEMBRE DE 2002)
-Cuando el consentimiento, la entrega y recepción del menor o incapaz, se haga con el propósito de incorporarlo a un núcleo familiar y otorgarle los beneficios propios de esa incorporación, las penas a que se refiere éste artículo se reducirán una mitad en su término mínimo y máximo.
+Cuando el consentimiento, la entrega y recepción del menor o incapaz, se haga con el propósito de incorporarlo a un núcleo familiar y otorgarle los beneficios propios de esa incorporación, las penas a que se refiere este artículo se reducirán una mitad en su término mínimo y máximo.
