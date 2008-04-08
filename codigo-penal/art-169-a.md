@@ -1,2 +1,4 @@
-(ADICIONADO, B.O. 19 DE DICIEMBRE DE 2002)
-ARTICULO 169-A.- Si el delito de pornografía infantil y de incapaces se comete con un menor de doce años de edad, las penas aumentarán hasta una mitad más de las sanciones previstas en el artículo 169 BIS de este Código.
+(REFORMADO, B.O. 7 DE ABRIL DE 2008)
+ARTICULO 169-A.- Comete el delito de relaciones sexuales remuneradas con personas menores de edad quien pague o prometa pagar con dinero o en especie a una persona menor de dieciocho años para obtener cópula o sostener actos eróticos sexuales con ella. A quien cometa este delito se le impondrá una pena de dos a ocho años de prisión y de cien a quinientos días multa, sin perjuicio de las penas que correspondan por la comisión de otros delitos.
+Esta conducta se actualizará incluso cuando el pago o promesa de pago con dinero o en especie sea para una tercera persona.
+Al que sin ánimo de explotación concerte, encubra o permita la explotación sexual de una persona menor de dieciocho años a través de la pornografía, las exhibiciones corporales públicas o privadas y las relaciones sexuales remuneradas, se le aplicará prisión de cuatro a ocho años y de diez a doscientos días multa.
