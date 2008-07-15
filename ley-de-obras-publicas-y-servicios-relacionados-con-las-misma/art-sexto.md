@@ -6,3 +6,4 @@ C. REYNALDO MILLAN COTA, DIPUTADO PRESIDENTE, RUBRICA. C. GUILLERMO PEÑA ENRÍQ
 Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
 Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los veintiún días de del mes de febrero del año dos mil siete.
 SUFRAGIO EFECTIVO. NO REELECCIÓN. EL GOBERNADOR DEL ESTADO, EDUARDO BOURS CASTELO, RÚBRICA. EL SECRETARIO DE GOBIERNO, ROBERTO RUIBALASTIAZARÁN, RÚBRICA.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.

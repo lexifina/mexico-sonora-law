@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 14 DE JULIO DE 2008)
+ARTICULO 61 BIS.- No obstante lo previsto en el artículo anterior, el Gobierno del Estado estará facultado para celebrar los contratos de comodato que sean necesarios para la prestación de servicios que deriven de una Alianza Público Privada de Servicios autorizada conforme a la Ley de la Materia. Su objeto y su plazo no podrán ser mayor al estrictamente necesario para cumplir con el Contrato de Alianza correspondiente.
