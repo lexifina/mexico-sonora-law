@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- La revisión de las cuentas públicas se efectuará conforme a las disposiciones establecidas en la presente ley a partir de la Cuenta Pública del ejercicio 2008, por lo que la revisión de la Cuentas Públicas del ejercicio 2007 y anteriores se efectuará conforme a las disposiciones vigentes en dichos ejercicios.

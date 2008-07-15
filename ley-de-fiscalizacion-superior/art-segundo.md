@@ -1,0 +1,2 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley Orgánica de la Contaduría Mayor de Hacienda del Congreso del Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado de Sonora el 4 de marzo de 1985, así como los decretos por los que se expidieron sus reformas publicados el 28 de abril de 1994 y el 9 de julio de 1998 respectivamente.
+Quedan sin efecto las disposiciones legales que contravengan o se opongan a lo preceptuado en esta ley.

@@ -1,0 +1,2 @@
+ARTÍCULO QUINTO.- Los servidores públicos de la Contaduría Mayor de Hacienda del Congreso del Estado de Sonora, pasarán a formar parte del Instituto, en su calidad de empleados de confianza y se respetarán sus derechos conforme a la ley.
+En cuanto a la normatividad aplicable, se regirán por el Apartado B del Artículo 123 de la Constitución Política de los Estados Unidos Mexicanos, y en lo aplicable, en las medidas protectoras del salario y de los beneficios de seguridad social, previstas en la Ley 40 del Servicio Civil para el Estado de Sonora.
