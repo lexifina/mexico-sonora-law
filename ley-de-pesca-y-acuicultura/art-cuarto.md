@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Las solicitudes de permisos cuya tramitación haya iniciado durante la vigencia de la Ley número 167 de Acuicultura para el Estado de Sonora y que se encuentren pendientes de resolución, deberán ser resueltas conforme a las disposiciones legales y administrativas vigentes al momento en que aquéllas fueron ingresadas.

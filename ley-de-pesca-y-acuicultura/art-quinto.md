@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Los procedimientos y recursos administrativos relativos a las materias de la Ley número 167 de Acuicultura para el Estado de Sonora que se hayan iniciado durante su vigencia y se encuentren pendientes de resolución, se tramitarán y resolverán de conformidad con las disposiciones vigentes al momento en que se iniciaron.

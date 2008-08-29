@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- Los permisos otorgados al amparo de la Ley número 167 de Acuicultura para el Estado de Sonora que se abroga continuarán en vigor hasta el cumplimiento del plazo por el que fueron otorgados.

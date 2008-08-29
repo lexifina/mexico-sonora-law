@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO.- El reglamento de la presente ley deberá ser expedido por el Gobernador del Estado, dentro de los ocho meses siguientes a la entrada en vigor de esta Ley. Mientras se expide dicho reglamento seguirá vigente el Reglamento de la Ley de Acuicultura del Estado de Sonora, publicado en el Boletín Oficial del Gobierno del Estado el 16 de abril de 2007.
