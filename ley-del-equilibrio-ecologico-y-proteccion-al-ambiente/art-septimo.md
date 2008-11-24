@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO.- El Congreso del Estado de Sonora deberá, en un plazo no mayor a 6 meses, contado a partir de la entrada en vigor de la presente ley, realizar las adecuaciones al Código Penal para el Estado de Sonora en materia de delitos contra la ecología.

@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO.- Los procedimientos de inspección y los recursos de inconformidad, así como los demás asuntos que se encuentren en trámite o pendientes de resolución, se tramitarán y resolverán conforme a las disposiciones vigentes al momento en que se iniciaron.

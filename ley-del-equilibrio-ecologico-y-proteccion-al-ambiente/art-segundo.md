@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley del Equilibrio Ecológico y la Protección al Ambiente para el Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado el 3 de enero de 1991, y sus reformas, y se derogan todas las disposiciones que se opongan a la presente ley.

@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- El Ejecutivo Estatal proveerá lo necesario a efecto de que se instale el Consejo Estatal para el Desarrollo Sustentable previsto en esta ley, dentro de los treinta días posteriores a la entrada en vigor de este ordenamiento.
