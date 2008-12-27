@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 26 DE DICIEMBRE DE 2008)
+ARTICULO 263 BIS.- Cuando la comisión de los delitos de homicidio o lesiones se realicen en el interior de instituciones de educación básica, media superior, superior o en sus inmediaciones, las penas previstas se aumentarán en una mitad, siempre y cuando la víctima sea alumno, directivo, docente o se trate de personal administrativo de la institución educativa.

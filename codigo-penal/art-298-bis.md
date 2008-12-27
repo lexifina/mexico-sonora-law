@@ -1,5 +1,5 @@
 (REFORMADO PRIMER PARRAFO, B.O. 20 DE OCTUBRE DE 2005)
-ARTÍCULO 298 Bis.- Se impondrá de tres a ocho años de prisión a quien, en relación con los delitos previstos en este Capítulo y fuera de los casos de exclusión del delito previstos (sic) en este Código:
+ARTÍCULO 298 BIS.- Se impondrá de tres a ocho años de prisión a quien, en relación con los delitos previstos en este Capítulo y fuera de los casos de exclusión del delito previstos (sic) en este Código:
 (ADICIONADA, B.O. 19 DE DICIEMBRE DE 2002)
 I.- Actúe como intermediario en las negociaciones del rescate, sin la aprobación de quienes representan o gestionan a favor de la víctima;
 (ADICIONADA, B.O. 19 DE DICIEMBRE DE 2002)
