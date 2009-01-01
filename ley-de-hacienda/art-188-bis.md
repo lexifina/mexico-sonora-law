@@ -1,5 +1,5 @@
 (ADICIONADO, B.O. 31 DE DICIEMBRE DE 2004)
-Artículo 188-BIS.- Los vehículos de más de 10 años modelo anteriores al año de aplicación de esta Ley, pagarán el impuesto conforme a la siguiente:
+Artículo 188 Bis.- Los vehículos de más de 10 años modelo anteriores al año de aplicación de esta Ley, pagarán el impuesto conforme a la siguiente:
 (REFORMADA, B.O. 29 DE DICIEMBRE DE 2006)
 TARIFA
 TIPOS DE VEHÍCULOAÑOS DE ANTIGÜEDAD
