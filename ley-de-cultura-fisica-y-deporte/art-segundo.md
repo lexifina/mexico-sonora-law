@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Deporte para el Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado de Sonora, Número 4, Sección IV, del día 12 de julio de 1999, así como todas aquellas disposiciones que se contrapongan a la presente ley.
