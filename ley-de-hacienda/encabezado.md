@@ -1,4 +1,5 @@
 LEY DE HACIENDA DEL ESTADO DE SONORA
+N. DE E. PARA LA ACTUALIZACIÓN DE LOS MONTOS DE LAS CUOTAS O TARIFAS DE LOS DERECHOS DEL TÍTULO CUARTO DE LA PRESENTE LEY, PARA EL PRIMER SEMESTRE DEL AÑO 2009, SE SUGIERE CONSULTAR EL ACUERDO PUBLICADO EN EL B.O. DE 12 DE MARZO DE 2009.
 Ley publicada en el Boletín Oficial del Estado de Sonora, el viernes 31 de diciembre de 1976.
 LIC. ALEJANDRO CARRILLO MARCOR, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes, sabed:
 Que el H. Congreso del Estado, se ha servido dirigirme la siguiente Ley:
