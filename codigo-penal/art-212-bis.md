@@ -8,3 +8,6 @@ ARTICULO 212 BIS.- Al que solicite favores de naturaleza sexual para sí o para 
 Si el hostigador fuese servidor público, y utilizase los medios o circunstancias que el encargo le proporcione, además de la pena prevista en el párrafo anterior se le destituirá de su cargo.
 Solamente será punible el hostigamiento sexual, cuando se cause un perjuicio o daño.
 Este delito se perseguirá sólo a petición de parte ofendida.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO UNICO DEL DECRETO QUE MODIFICA LA LEY.
+(ADICIONADO, B.O. 4 DE JUNIO DE 2009)
+Si el delito se cometiera en contra de la víctima, por su condición de género, se aumentará la pena que corresponda hasta en una tercera parte.
