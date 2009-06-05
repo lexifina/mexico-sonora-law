@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 4 DE JUNIO DE 2009)
+ARTICULO 52 BIS.- Los hospitales, clínicas, nosocomios y demás establecimientos de los sectores público y privado de la Entidad informarán a la Secretaría de los nacimientos ocurridos en sus instalaciones. La Secretaría proporcionará dicha información al Sistema para el Desarrollo Integral de la Familia en el Estado, por conducto de la Procuraduría de la Defensa del Menor y la Familia, para en su caso, brindar la seguridad y protección que el menor requiera.
+La Secretaría también proporcionará la información señalada en el párrafo anterior, a la Secretaría de Gobierno, por conducto de la Dirección General del Registro Civil.
