@@ -1,0 +1,2 @@
+B.O. 13 DE MAYO DE 2010.
+ARTÍCULO UNICO.- La presente ley entrará en vigor el día de su publicación en el Boletín Oficial del Gobierno del Estado, previo cómputo que se realice de la aprobación o rechazo que emitan los ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente ley para los efectos dispuestos por el artículo 163 de la Constitución Política del Estado de Sonora.
