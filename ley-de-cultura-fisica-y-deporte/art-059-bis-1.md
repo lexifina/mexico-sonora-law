@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 27 DE MAYO DE 2010)
+Artículo 59 Bis 1.- Para la integración del presupuesto anual destinado a infraestructura deportiva, el Ejecutivo Estatal deberá destinar, al menos, el cinco por ciento del Presupuesto total destinado para inversión en infraestructura, según la distribución del gasto que indique el capítulo 6000 del Decreto del Presupuesto de Egresos del Gobierno del Estado de Sonora y dicho monto deberá ser consignado en la iniciativa que presente el titular del Poder Ejecutivo al Congreso del Estado para ser ejercido conforme lo dispone esta ley.

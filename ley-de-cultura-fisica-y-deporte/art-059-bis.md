@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 27 DE MAYO DE 2010)
+Artículo 59 Bis.- La ejecución de los programas, fondos y recursos destinados a la infraestructura deportiva será considerada prioritaria y de interés público y, por lo tanto, dichos instrumentos no podrán sufrir disminuciones ni transferirse para otros conceptos durante el ejercicio fiscal correspondiente, excepto en los casos y bajo las condiciones que establezcan, en cada caso, el Poder Legislativo.
