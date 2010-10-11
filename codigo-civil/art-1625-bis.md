@@ -11,7 +11,7 @@ Cuando el inmueble vaya a formar parte o se encuentre dentro del fondo del régi
 (ADICIONADO, B.O. 6 DE JULIO DE 1995)
 Cuando el testador estuviere casado bajo el régimen de sociedad conyugal, su cónyuge podrá instituir uno o más legatarios en el mismo instrumento, por la porción que le corresponda.
 (ADICIONADO, B.O. 6 DE JULIO DE 1995)
-En los supuestos a que se refiere este artículo no se aplicará los dispuesto por el artículo 1371 de este Código.
+En los supuestos a que se refiere este artículo no se aplicará lo dispuesto por el artículo 1371 de este Código.
 (ADICIONADA, B.O. 6 DE JULIO DE 1995)
 IV.- Los legatarios recibirán el legado con la obligación de dar alimentos a los acreedores alimentarios, si los hubiere, en la proporción que el valor del legado represente en la totalidad del acervo hereditario de los bienes del autor de la sucesión;
 (ADICIONADA, B.O. 6 DE JULIO DE 1995)
