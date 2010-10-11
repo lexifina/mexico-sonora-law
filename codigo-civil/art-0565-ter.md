@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 13 DE DICIEMBRE DE 2001)
-Art. 565 TER.- El menor o el incapacitado podrán impugnar su adopción, dentro del año siguiente a la mayor edad o a la fecha en que halla desaparecido la incapacidad, sin especificación de causa, a menos que el primero hubiese consentido en la adopción.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA MODIFICACION AL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA.
+Art. 565 TER.- (DEROGADO POR EL ARTICULO SEGUNDO TRANSITORIO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA, B.O. 15 DE OCTUBRE DE 2009)

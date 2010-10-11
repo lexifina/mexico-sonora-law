@@ -1,7 +1,5 @@
-(ADICIONADO, B.O. 17 DE MAYO DEL 2001)
-Art. 489 BIS.- Todos los integrantes de la familia están obligados a evitar conductas que generen violencia intrafamiliar.
-(REFORMADO, B.O. 6 DE JULIO DE 2006)
-Por violencia intrafamiliar se entiende todo acto de poder u omisión intencional dirigido a dominar, someter o agredir física, verbal, psicoemocional sexual o patrimonialmente a cualquier miembro de la familia y que pueda causar maltrato físico, verbal, psicológico, sexual o daño patrimonial, en los términos de la Ley de Prevención y Atención de la Violencia Intrafamiliar.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA MODIFICACION AL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA.
+Art. 489 BIS.- (DEROGADO POR EL ARTICULO SEGUNDO TRANSITORIO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA, B.O. 15 DE OCTUBRE DE 2009)
 TITULO SEPTIMO.
 De la Paternidad y Filiación.
 CAPITULO I.

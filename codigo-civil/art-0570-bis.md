@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 13 DE DICIEMBRE DE 2001)
-Art. 570 BIS.- Los casos en que procede la adopción plena deben ser constatados judicialmente. En las hipótesis de abandono o desvinculación de los padres consanguíneos, debe seguirse un juicio de pérdida de la patria potestad antes de otorgar la adopción.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA MODIFICACION AL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA.
+Art. 570 BIS.- (DEROGADO POR EL ARTICULO SEGUNDO TRANSITORIO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA, B.O. 15 DE OCTUBRE DE 2009)

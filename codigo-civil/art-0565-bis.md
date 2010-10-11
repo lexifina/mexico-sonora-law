@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 13 DE DICIEMBRE DE 2001)
-Art. 565 BIS.- En el primer caso del artículo anterior, el Juez decretará disuelta la adopción si, convencido de la espontaneidad con que se solicito su terminación, encuentra que la disolución del vínculo es conveniente para los intereses morales y materiales del adoptado.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA MODIFICACION AL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA.
+Art. 565 BIS.- (DEROGADO POR EL ARTICULO SEGUNDO TRANSITORIO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA, B.O. 15 DE OCTUBRE DE 2009)

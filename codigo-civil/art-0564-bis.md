@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 13 DE DICIEMBRE DE 2001)
-Art. 564 BIS.- Los descendientes del adoptado lo son también del adoptante, sin necesidad de resolución judicial. En el acta de nacimiento de éstos no se hará mención del carácter adoptivo de los ascendientes.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA MODIFICACION AL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA.
+Art. 564 BIS.- (DEROGADO POR EL ARTICULO SEGUNDO TRANSITORIO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA, B.O. 15 DE OCTUBRE DE 2009)

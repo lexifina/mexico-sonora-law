@@ -1,5 +1,5 @@
-(ADICIONADO, B. O. 13 DE DICIEMBRE DE 2001)
-Art. 563 BIS.- Tan luego como cause ejecutoria la resolución judicial que se dicte autorizando una adopción, quedará ésta consumada, y no podrá revocarse sino en los casos previstos en este Código para la adopción simple, debiéndose remitir copia de las diligencias respectivas al Oficial del Registro Civil del lugar, para que levante el acta correspondiente.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA MODIFICACION AL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA.
+Art. 563 BIS.- (DEROGADO POR EL ARTICULO SEGUNDO TRANSITORIO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA, B.O. 15 DE OCTUBRE DE 2009)
 (ADICIONADO, B.O. 13 DE DICIEMBRE DE 2001)
 CAPITULO VI.
 De la Adopción Simple.

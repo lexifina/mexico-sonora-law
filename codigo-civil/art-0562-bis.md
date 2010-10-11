@@ -1,2 +1,2 @@
-(ADICIONADO, B. O. 13 DE DICIEMBRE DE 2001)
-Art. 562 BIS.- La persona que haya tenido al menor o incapaz bajo su custodia y protección por un período superior a un año, tendrá un derecho preferente para adoptarlo, probando la orfandad o el abandono del menor.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA MODIFICACION AL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA.
+Art. 562 BIS.- (DEROGADO POR EL ARTICULO SEGUNDO TRANSITORIO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA, B.O. 15 DE OCTUBRE DE 2009)

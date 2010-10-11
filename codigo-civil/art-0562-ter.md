@@ -1,2 +1,2 @@
-(ADICIONADO, B. O. 13 DE DICIEMBRE DE 2001)
-Art. 562 TER.- Si el tutor o el Ministerio Público no consienten en la adopción, deberán expresar la causa en que se funden, la que será calificada por el Juez, tomando en cuenta los intereses del menor o incapacitado y oyendo también al Sistema Estatal para el Desarrollo Integral de la Familia.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA MODIFICACION AL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA.
+Art. 562 TER.- (DEROGADO POR EL ARTICULO SEGUNDO TRANSITORIO DEL CODIGO DE FAMILIA PARA EL ESTADO DE SONORA, B.O. 15 DE OCTUBRE DE 2009)
