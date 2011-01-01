@@ -11,6 +11,6 @@ La Secretaría de Hacienda otorgará anualmente este beneficio, el cual será eq
 (ADICIONADO, B.O. 29 DE OCTUBRE DE 2009)
 El otorgamiento del estímulo en el pago del impuesto a que se refiere el presente artículo, no exime el pago del impuesto para el sostenimiento de la Universidad de Sonora y de la contribución para el Consejo Estatal de Concertación para la Obra Pública.
 (ADICIONADO, B.O. 15 DE ENERO DE 2009)
-Los contribuyentes beneficiarios al estímulo previsto en este artículo, deberán presentar sus declaraciones fiscales de conformidad con las disposiciones vigentes, señalando el monto del impuesto causado y el monto del estímulo a que sean acreedores, mismo que será deducido del impuesto causado.
+Los contribuyentes beneficiarios al (sic) estímulo previsto en este artículo, deberán presentar sus declaraciones fiscales de conformidad con las disposiciones vigentes, señalando el monto del impuesto causado y el monto del estímulo a que sean acreedores, mismo que será deducido del impuesto causado.
 (ADICIONADO, B.O. 15 DE ENERO DE 2009)
 El beneficio que se confiere en el presente artículo no otorga a los contribuyentes el derecho de devolución, ni será aplicable en los accesorios en caso de que estos se hubieren causado.

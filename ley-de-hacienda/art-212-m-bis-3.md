@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 30 DE DICIEMBRE DE 2010)
+Artículo 212-M BIS 3.- Este impuesto se causa en el momento que se entreguen a los participantes fichas, tarjetas, contraseñas, bandas magnéticas, dispositivos electrónicos u objetos similares, que se utilicen para apostar en sustitución de cantidades de dinero y sean aceptadas para esos fines por la persona que realice el juego o en el momento de participación en el concurso.
