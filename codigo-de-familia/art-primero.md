@@ -1,1 +1,2 @@
-ARTÍCULO PRIMERO.- El presente Código entrará en vigor a los 365 días después de su publicación en el Boletín Oficial del Gobierno del Estado, con el objeto de que durante dicho plazo pueda ser aprobada la legislación procesal necesaria para una adecuada implementación de las disposiciones de este Código.
+(REFORMADO, B.O. 11 DE OCTUBRE DE 2010)
+ARTICULO PRIMERO.- El presente Código entrará en vigor el día 01 de enero del 2011, previa su publicación en el Boletín Oficial del Gobierno del Estado. En dicho lapso, el Poder Legislativo deberá aprobar la legislación procesal respectiva, estableciendo para el efecto en el decreto de aprobación, su fecha específica de entrada en vigor.
