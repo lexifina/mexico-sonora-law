@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 1 DE MARZO DE 2011)
+Artículo 490 BIS.- Si no pudiere darse la garantía prevenida en los tres artículos anteriores, el Juez, según las circunstancias de las personas y de los bienes, y concediendo el plazo fijado en el artículo 399 de este Código, podrá disminuir el importe de aquélla, pero de modo que no baje de la tercera parte de los valores señalados en el artículo 394 de este Código.
