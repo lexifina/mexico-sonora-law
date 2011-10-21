@@ -21,3 +21,4 @@ C. NICOLAS CAMPAS ROMERO, DIPUTADO PRESIDENTE, RUBRICA. C. IRMA YOLANDA ALAMEDA 
 Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
 Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los nueve días del mes de junio del año dos mil seis.
 SUFRAGIO EFECTIVO. NO REELECClON. EL GOBERNADOR DEL ESTADO, EDUARDO BOURS CASTELO, RUBRICA. EL SECRETARIO DE GOBIERNO POR MINISTERIO DE LEY, ENRlQUE PALAFOX PAZ, RUBRICA.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
