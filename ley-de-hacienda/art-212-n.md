@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, B.O. 30 DE DICIEMBRE DE 2010)
+(REFORMADO PRIMER PÁRRAFO, B.O. 30 DE DICIEMBRE DE 2010)
 Artículo 212-N.- Las personas físicas, morales o unidades económicas sin personalidad jurídica, que organicen, celebren, enajenen o vendan directamente o a través de terceras personas, billetes, boletos, contraseñas o cualquier otro comprobante que permita participar en los eventos a que se refiere el objeto de los impuestos a que se refiere esta sección, tendrán las siguientes obligaciones:
 (ADICIONADA, B.O. 30 DE DICIEMBRE DE 1996)
 I.- Solicitar su inscripción en el registro estatal de contribuyentes, utilizando para tales efectos las formas aprobadas;
