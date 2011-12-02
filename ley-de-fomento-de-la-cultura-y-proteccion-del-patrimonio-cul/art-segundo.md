@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Fomento a la Cultura y las Artes para el Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado de Sonora, Número 3, Sección I, del día 10 de enero de 2000, así como todas aquellas disposiciones que se contrapongan a la presente ley.
