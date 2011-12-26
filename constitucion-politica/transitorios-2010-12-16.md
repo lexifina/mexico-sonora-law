@@ -1,4 +1,4 @@
 B.O. 16 DE DICIEMBRE DE 2010.
-LEY NUMERO 77, POR EL QUE SE REFORMA EL PARRAFO TERCERO Y SE ADICIONAN LOS PARRAFOS CUARTO Y SUS INCISOS A AL H, QUINTO Y SUS INCISOS A AL I Y SEXTO, TODOS DEL ARTICULO 1° DE LA CONSTITUCION POLITICA DEL ESTADO DE SONORA.
+LEY NÚMERO 77, POR EL QUE SE REFORMA EL PÁRRAFO TERCERO Y SE ADICIONAN LOS PÁRRAFOS CUARTO Y SUS INCISOS A AL H, QUINTO Y SUS INCISOS A AL I Y SEXTO, TODOS DEL ARTÍCULO 1° DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SONORA.
 ARTÍCULO ÚNICO.- La presente ley entrará en vigor el día de su publicación en el Boletín Oficial del Gobierno del Estado, previo cómputo que se realice de la aprobación o rechazo que emitan los ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente ley, para los efectos dispuestos por el artículo 163 de la Constitución Política del Estado de Sonora.
 Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que realicen el cómputo respectivo y la remitan al Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado, en caso de resultar aprobada.

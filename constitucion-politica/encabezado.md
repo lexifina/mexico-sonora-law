@@ -1,4 +1,4 @@
-CONSTITUCION POLITICA DEL ESTADO DE SONORA, QUE REFORMA LA DE 1o. DE NOVIEMBRE DE 1872
+CONSTITUCIÓN POLÍTICA DEL ESTADO DE SONORA, QUE REFORMA LA DE 1o. DE NOVIEMBRE DE 1872
 Constitución publicada en la Edición Oficial del Estado de Sonora, el 15 de septiembre de 1917.
 CESAREO G. SORIANO, Gobernador Constitucional Interino del Estado Libre y Soberano de Sonora, a sus habitantes, sabed:
 Que el Congreso Constituyente del mismo, ha tenido a bien decretar lo siguiente:
