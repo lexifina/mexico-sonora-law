@@ -1,0 +1,3 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, B.O. 26 DE DICIEMBRE DE 2011)
+Artículo 34 Bis B.- De conformidad con lo dispuesto en esta Ley, cualquier persona interesada tendrá derecho a oponerse al tratamiento de los datos personales que le conciernen, en el supuesto que los datos se hubieran recabado sin su consentimiento, cuando existan motivos fundados para ello y la Ley no disponga lo contrario. De actualizarse tal supuesto, el sujeto obligado responsable de la base de datos correspondiente deberá excluir del tratamiento los datos personales relativos al afectado.
