@@ -8,3 +8,4 @@ C. JUAN MANUEL SAUCEDA MORALES, DIPUTADO PRESIDENTE, RUBRICA. C. SERGIO CUELLAR 
 Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
 Dado en la Residencia del Poder Ejecutivo, en la Ciudad de Hermosillo Sonora, a los cinco días del mes de septiembre del año dos mil siete.
 EL GOBERNADOR DEL ESTADO, EDUARDO BOURS CASTELO, RUBRICA. EL SECRETARIO DE GOBIERNO, ROBERTO RUIBAL ASTIAZARAN, RUBRICA.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
