@@ -1,0 +1,9 @@
+B.O. 18 DE OCTUBRE DE 2012.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO SEGUNDO.- En todas aquellas disposiciones jurídicas en las cuales se haga referencia al Consejo Sonorense Promotor de la Regulación del Bacanora, se entenderá que se hace referencia al Consejo Sonorense Regulador del Bacanora.
+ARTÍCULO TERCERO.- Por virtud del presente Decreto, se transfiere la titularidad de todos aquellos actos jurídicos que en su oportunidad se otorgaron al Consejo Sonorense Promotor de la Regulación del Bacanora al Consejo Sonorense Regulador del Bacanora.
+Asimismo, los procedimientos en los que sea parte el Consejo Sonorense Promotor de la Regulación del Bacanora y que a la entrada en vigor del presente Decreto se encuentren en trámite ante alguna autoridad, los continuará tramitando hasta su total conclusión el Consejo Sonorense Regulador del Bacanora.
+De igual forma, los recursos humanos, materiales y financieros que el Consejo Sonorense Promotor de la Regulación del Bacanora tenga asignados para el ejercicio de sus atribuciones, pasarán a formar parte de la (sic) Consejo Sonorense Regulador del Bacanora, respetándose los derechos laborales conforme a la legislación aplicable.
+ARTÍCULO CUARTO.- Dentro de los 90 días naturales siguientes a la entrada en vigor del presente Decreto, la Junta Directiva del Consejo Sonorense Regulador del Bacanora deberá realizar las adecuaciones pertinentes a la normatividad interna de la entidad, a efecto de hacerla congruente con las disposiciones del presente Decreto.
+ARTÍCULO QUINTO.- El Consejo Sonorense Regulador del Bacanora deberá emitir los lineamientos a que se refiere el artículo 45 de la Ley, dentro de los seis meses posteriores a la entrada en vigor del presente Decreto.
+ARTÍCULO SEXTO.- Se derogan todas aquellas disposiciones que se opongan al presente Decreto.

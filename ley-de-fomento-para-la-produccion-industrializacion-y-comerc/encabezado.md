@@ -1,4 +1,4 @@
-LEY DE FOMENTO PARA LA PRODUCCION, INDUSTRIALIZACION Y COMERCIALIZACION DEL BACANORA DEL ESTADO DE SONORA
+LEY DE FOMENTO PARA LA PRODUCCIÓN, INDUSTRIALIZACIÓN Y COMERCIALIZACIÓN DEL BACANORA DEL ESTADO DE SONORA
 Ley publicada en la Sección III al Boletín Oficial del Estado de Sonora, el lunes 8 de diciembre de 2008.
 EDUARDO BOURS CASTELO, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
 Que el Honorable Congreso del Estado, ha servido dirigirme la siguiente
