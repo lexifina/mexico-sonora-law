@@ -1,6 +1,6 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER ARTICULO UNICO TRANSITORIO DEL DECRETO QUE MODIFICA EL CODIGO.
-(DEROGADO QUINTO PARRAFO, B.O. 26 DE DICIEMBRE DE 2008)
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO UNICO TRANSITORIO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+(DEROGADO QUINTO PÁRRAFO, B.O. 26 DE DICIEMBRE DE 2008)
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, B.O. 26 DE DICIEMBRE DE 2008)
 ARTÍCULO 146 BIS.- La Secretaría de Hacienda podrá cancelar créditos fiscales por incosteabilidad en el cobro o por insolvencia del deudor o de los responsables solidarios.
 Se considerarán créditos de cobro incosteable, aquellos cuyo importe sea inferior o igual al equivalente en moneda nacional a 400 unidades de inversión, aquellos cuyo importe sea inferior o igual al equivalente en moneda nacional a 20,000 unidades de inversión y cuyo costo de recuperación rebase el 75% del importe del crédito, así como aquellos cuyo costo de recuperación sea igual o mayor a su importe.

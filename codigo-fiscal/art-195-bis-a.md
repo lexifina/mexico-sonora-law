@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO UNICO TRANSITORIO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, B.O. 26 DE DICIEMBRE DE 2008)
 ARTÍCULO 195 BIS A.- Los plazos de abandono a que se refiere el artículo 195 BIS de este Código se interrumpirán:
 I.- Por la interposición del recurso administrativo o la presentación de la demanda en el juicio que proceda.
