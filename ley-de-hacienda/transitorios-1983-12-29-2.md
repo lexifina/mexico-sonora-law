@@ -1,5 +1,5 @@
 B.O. 29 DE DICIEMBRE DE 1983.
-LEY NUMERO 35 DE HACIENDA MUNICIPAL DEL ESTADO DE OAXACA.
+LEY NÚMERO 35 DE HACIENDA MUNICIPAL DEL ESTADO DE OAXACA.
 SE TRANSCRIBEN UNICAMENTE LOS ARTICULOS TRANSITORIOS DEL DECRETO DE REFORMAS QUE SE RELACIONAN CON LA LEY.
 PRIMERO.- La presente Ley entrara en vigor, previa su publicación en el Boletín Oficial del Gobierno del Estado, el día 1o. de Enero de 1984.
 SEGUNDO.- A partir de la fecha en que esta ley entre en vigor queda abrogada la Ley Orgánica del Sistema Fiscal Municipal de fecha 1o. de Julio de 1931, así como derogadas todas aquellas disposiciones administrativas, resoluciones, consultas, interpretaciones y autorizaciones de carácter general o que se hubiesen otorgado a título particular, que contravengan o se opongan a lo preceptuado en la misma.
