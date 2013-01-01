@@ -1,7 +1,5 @@
-(ADICIONADO, B.O. 31 DE DICIEMBRE DE 2001)
-ARTICULO 103 BIS B.- Los contribuyentes calcularán el impuesto a la prestación de servicios de hospedaje aplicando la tasa que al efecto apruebe el Congreso del Estado en las leyes de ingresos de los Ayuntamientos sobre el valor de las contraprestaciones que perciban por servicios de hospedaje y deberán pagarlo mediante declaración que presentarán en la forma oficial aprobada, ante las oficinas autorizadas, a mas tardar el día quince del mes siguiente a aquél en que se perciban dichas contraprestaciones.
-En el caso de que un contribuyente cuente con dos o más inmuebles para servicios de hospedaje, deberá presentar la declaración a que se refiere el párrafo anterior respecto de cada uno de ellos, a excepción de los inmuebles colindantes, por los que se presentará una sola declaración.
-Los contribuyentes del impuesto por la prestación de servicios de hospedaje, deberán formular declaraciones hasta en tanto no presenten el aviso de baja al padrón de contribuyentes o de suspensión temporal de actividades.
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, B.O. 31 DE DICIEMBRE DE 2004)
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+ARTICULO 103 BIS B.- (DEROGADO, B.O. 6 DE AGOSTO DE 2012)
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, B.O. 31 DE DICIEMBRE DE 2004)
 CAPITULO SEPTIMO
 Del Impuesto Municipal sobre Tenencia o Uso de Vehículos

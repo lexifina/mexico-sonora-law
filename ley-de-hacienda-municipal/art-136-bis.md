@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, B.O. 29 DE DICIEMBRE DE 2006)
+(REFORMADO PRIMER PÁRRAFO, B.O. 29 DE DICIEMBRE DE 2006)
 ARTÍCULO 136 BIS.- Por los servicios que se presten en materia de protección civil y bomberos, se causarán los derechos conforme a la siguiente base:
 (ADICIONADA, B.O. 31 DE DICIEMBRE DE 2001)
 I.- Por la expedición de constancia de zonificación.

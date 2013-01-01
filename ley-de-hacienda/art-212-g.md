@@ -1,7 +1,3 @@
-Artículo 212-G.- (DEROGADO, B.O. 31 DE DICIEMBRE DE 2004)
-(REFORMADA SU DENOMINACIÓN, B.O. 30 DE DICIEMBRE DE 2010)
-Sección Cuarta
-Del Impuesto Estatal Sobre los Ingresos Derivados por la Obtención de Premios y del Impuesto Estatal por la Prestación de Servicios de Juegos con Apuestas y Concursos
-(ADICIONADO, B.O. 30 DE DICIEMBRE DE 2010)
-Apartado 1
-Del Impuesto Estatal Sobre los Ingresos Derivados por la Obtención de Premios.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(REFORMADO [N. DE E. ADICIONADO], B.O. 6 DE AGOSTO DE 2012)
+Artículo 212-G.- En este apartado se establecen las disposiciones aplicables a las aeronaves, embarcaciones, veleros, esquís acuáticos motorizados, motocicletas acuáticas, tablas de oleaje con motor, automóviles eléctricos, motocicletas, trimotos y cuatrimotos.

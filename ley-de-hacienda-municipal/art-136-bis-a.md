@@ -23,6 +23,6 @@ XX.- Por mapas de municipio tamaño doble carta.
 XXI.- Por mapas y padrones solicitados por empresas por propiedad, siempre que el uso sea individual.
 XXII.- Por servicio en línea por internet de certificado catastral.
 El importe de las cuotas por la prestación de los anteriores servicios se reducirán en un 50% cuando estos sean solicitados para construcción o adquisición de vivienda de interés social.
-(REFORMADO CON LOS ARTICULOS QUE LO INTEGRAN, B.O. 16 DE NOVIEMBRE DE 1987)
+(REFORMADO CON LOS ARTÍCULOS QUE LO INTEGRAN, B.O. 16 DE NOVIEMBRE DE 1987)
 CAPITULO DECIMO TERCERO
 Control Sanitario de Animales Domésticos

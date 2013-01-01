@@ -1,0 +1,3 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(ADICIONADO, B.O. 6 DE AGOSTO DE 2012)
+Artículo 212-G 11.- Los contribuyentes pagarán el impuesto por año de calendario durante los seis primeros meses ante las oficinas autorizadas por la Secretaría de Hacienda, salvo en el caso de vehículos nuevos o importados, supuesto en el que el impuesto deberá calcularse y enterarse dentro de los quince días hábiles siguientes al de su enajenación o importación. El pago del impuesto a que se refiere esta Sección se comprobará de conformidad con las disposiciones del Código Fiscal del Estado.
