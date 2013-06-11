@@ -1,4 +1,4 @@
-LEY DE RECONOCIMIENTOS AL MERITO CIVICO
+LEY DE RECONOCIMIENTOS AL MÉRITO CÍVICO
 Ley publicada en la Sección Primera del Boletín Oficial del Estado de Sonora, el jueves 20 de mayo de 2004.
 EDUARDO BOURS CASTELO, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
 Que el Honorable Congreso del Estado, se ha servido dirigirme la siguiente
