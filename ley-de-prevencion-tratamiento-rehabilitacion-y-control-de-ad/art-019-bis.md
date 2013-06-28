@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 27 DE JUNIO DE 2013)
+ARTÍCULO 19 BIS.- El Gobierno del Estado, por conducto de la Secretaría de Salud, operará un centro de atención telefónica en el que, mediante un número de emergencia gratuito, especialistas en la materia atenderán a personas que, derivado de la pérdida de control en juegos de apuestas, consideren que requieren atención especial orientada al tratamiento de la ludopatía, así como a las demás adicciones contempladas en esta ley.

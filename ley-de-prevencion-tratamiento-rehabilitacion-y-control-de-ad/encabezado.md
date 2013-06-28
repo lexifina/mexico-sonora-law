@@ -1,4 +1,4 @@
-LEY DE PREVENCION, TRATAMIENTO, REHABILITACION Y CONTROL DE ADICCIONES DEL ESTADO DE SONORA
+LEY DE PREVENCIÓN, TRATAMIENTO, REHABILITACIÓN Y CONTROL DE ADICCIONES DEL ESTADO DE SONORA
 Ley publicada en la Sección III del Boletín Oficial del Estado de Sonora, el jueves 5 de marzo de 2009.
 EDUARDO BOURS CASTELO, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
 Que el Honorable Congreso del Estado, se ha servido dirigirme la siguiente
