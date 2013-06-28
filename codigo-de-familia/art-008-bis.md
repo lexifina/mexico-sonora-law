@@ -1,0 +1,5 @@
+(ADICIONADO, B.O. 27 DE JUNIO DE 2013)
+Artículo 8 BIS.- Todo niño tiene derecho a ser escuchado en cualquier causa administrativa o judicial que le afecte, en forma directa y libre cuando su desarrollo intelectual le permita expresarse en forma razonada, a juicio de la autoridad que conozca del asunto, o por medio de representante. Su opinión será tomada en cuenta en razón de su edad y madurez, atendiendo siempre al interés superior del mismo.
+Para preservar su estabilidad emocional será escuchado en privado por el Juez, apoyado por un psicólogo, en áreas especiales para este propósito y mediante conversaciones informales.
+A fin de evitar conflictos de lealtades, no se dejará constancia de la opinión del menor, cuando se trate de conflictos que involucren a sus padres o a cualquier otro miembro de su familia ni en los juicios sobre adopción o reconocimiento de hijos.
+No se admitirá que el menor sea llamado como testigo por alguna de las partes, cuando se trate de juicios de divorcio, pérdida de la patria potestad o en las causas penales, cuando comparezca como testigo de cargo, a solicitud de alguno de sus padres y en perjuicio del otro.
