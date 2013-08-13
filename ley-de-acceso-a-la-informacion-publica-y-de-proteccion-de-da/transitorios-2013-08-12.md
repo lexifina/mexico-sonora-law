@@ -1,0 +1,5 @@
+B.O. 12 DE AGOSTO DE 2013.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor a partir del día siguiente al de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO SEGUNDO.- El Instituto contará con un plazo de seis meses, a partir de que entre en vigor el presente Decreto, para emitir su Reglamento Interior, los lineamientos y demás disposiciones que en el presente Decreto se le mandata.
+ARTÍCULO TERCERO.- Los sujetos obligados a que se hacen mención en los artículos los artículos 14, 17 Bis, 17 Bis A, 17 Bis B, 17 Bis C, 17 Bis D, 17 Bis E, 17 Bis F, 17 Bis G, 17 Bis H y 17 Bis J, a más tardar el primero de enero de 2014, deberán publicar la información a que se refieren dichos dispositivos, en sus respectivos sitios de internet.
+ARTÍCULO CUARTO.- Las necesidades presupuestales que se generen en el Instituto de Transparencia Informativa con motivo de las modificaciones aprobadas mediante el presente Decreto, habrán de solventarse en su presupuesto de egresos del ejercicio fiscal del año 2014.

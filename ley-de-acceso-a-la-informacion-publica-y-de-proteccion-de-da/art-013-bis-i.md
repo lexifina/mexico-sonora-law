@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 12 DE AGOSTO DE 2013)
+Artículo 13 Bis I.- El Instituto promoverá que, en los planes y programas educativos de educación básica y para la formación de maestros que se impartan en el Estado, se incluyan contenidos que reconozcan la importancia del ejercicio del derecho de acceso a la información pública. Igualmente, promoverá que en las instituciones públicas y privadas de educación superior, se incluya en la currícula el tema, ponderando la importancia del ejercicio de este derecho en la vida democrática de la Entidad.
