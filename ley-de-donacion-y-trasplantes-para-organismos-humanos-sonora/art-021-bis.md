@@ -1,4 +1,4 @@
-(ADICIONADO, B.O. 31 DE MAYO DEL 2010)
-ARTICULO 21 BIS.- Las instituciones públicas del Gobierno del Estado y de los municipios en Sonora que por razón de sus funciones emitan documentos oficiales de identificación ciudadana, deberán incluir en el mismo una anotación que exprese la voluntad del titular de la misma en relación con la donación de sus órganos.
-El Centro promoverá la celebración de convenios con las instituciones de educación superior privadas en el Estado de Sonora, con el propósito de que se incluya en la credencial oficial de identificación estudiantil la voluntad del titular para ser donador de órganos.
-En el caso de que los documentos referidos en los párrafos precedentes sean expedidos a favor de menores de edad, la decisión expresada en los mismos no tendrá validez jurídica y sólo tendrá como propósito el promover la cultura de la donación de órganos.
+(REFORMADO, B.O. 30 DE SEPTIEMBRE DE 2013)
+ARTICULO 21 BIS.- Las instituciones públicas del Gobierno del Estado y de los Ayuntamientos que por razón de sus funciones emitan documentos de identificación ciudadana, deberán incluir en el mismo una anotación que exprese la voluntad del titular de la misma en relación a la donación de sus órganos.
+El Centro promoverá la celebración de convenios con las instituciones de educación superior en el Estado con el propósito de que se incluya en la credencial de identificación estudiantil la voluntad del titular para ser donador de órganos.
+Para efectos del presente artículo, cuando se tratase de menores de edad, los documentos no deberán incluir la anotación que exprese la voluntad para ser donantes de órganos.
