@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 19 DE DICIEMBRE DE 2013)
+ARTÍCULO 57 BIS.- La Secretaría verificará en frigoríficos, almacenes y establecimientos comerciales que los productos y subproductos pecuarios procedentes u originarios de otros estados de la República, se hayan internado a la Entidad, cumpliendo con los procedimientos de introducción y movilización que establece esta ley y el resto de la normatividad estatal aplicable.
+En caso de que los encargados de los establecimientos comerciales, frigoríficos o almacenes no comprueben la legal internación de productos y subproductos pecuarios, el inspector comisionado procederá a levantar el acta correspondiente, en los términos que establece la Ley del Procedimiento Administrativo para el Estado de Sonora.

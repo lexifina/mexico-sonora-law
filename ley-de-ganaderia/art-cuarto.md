@@ -6,3 +6,4 @@ C. JOSE YANES, NAVARRO, DIPUTADO PRESIDENTE, RUBRICA. C. CARLOS GALINDO MEZA, DI
 Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los veinticuatro días del mes de octubre del año dos mil cinco.
 SUFRAGIO EFECTIVO. NO REELECCION, EL GOBERNADOR DEL ESTADO, EDUARDO BOURS CASTELO, RUBRICA, EL SECRETARIO DE GOBIERNO, ROBERTO RUIBAL ASTIAZARAN, RUBRICA.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.

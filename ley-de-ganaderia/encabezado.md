@@ -1,4 +1,4 @@
-LEY DE GANADERIA PARA EL ESTADO DE SONORA
+LEY DE GANADERÍA PARA EL ESTADO DE SONORA
 Ley publicada en la Tercera Sección del Boletín Oficial del Estado de Sonora, el lunes 7 de noviembre de 2005
 EDUARDO BOURS CASTELO, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
 Que el Honorable Congreso del Estado, se ha servido dirigirme la siguiente

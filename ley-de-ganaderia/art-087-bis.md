@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 19 DE DICIEMBRE DE 2013)
+ARTÍCULO 87 BIS.- Para la expedición de las autorizaciones previstas en el artículo 86, la Secretaría, en el caso de productos y subproductos pecuarios, deberá tomar en consideración, previamente, la opinión de los organismos de cooperación correspondiente, así como las necesidades de la población para que no se vean afectados los productores ni el abasto de productos para la población del Estado.
