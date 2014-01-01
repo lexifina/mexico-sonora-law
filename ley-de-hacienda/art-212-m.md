@@ -8,4 +8,5 @@ I.- Máquinas programadas.- En las cuales el premio depende de un programa inter
 II.- Máquinas de azar.- En las cuales los premios dependen exclusivamente del azar.
 Las máquinas a que se refieren las fracciones I y II, anteriores, son con independencia de que se trate de máquinas digitales o de rodillos, máquinas mixtas, en las que se combinen rodillos en el juego inferior y un sistema digital en el superior, o incluso cuando se interactúe por medio de internet.
 III.- Maquinas electrónicas de bingo, juegos de números o de símbolos o video juegos electrónicos.
-Los pagos del Impuesto Sobre Loterías, Rifas o Sorteos efectuados en los términos de la Ley de Hacienda Municipal, se disminuirán de este Impuesto.
+(REFORMADO, B.O. 19 DE DICIEMBRE DE 2013)
+Los pagos del Impuesto Sobre Loterías, Rifas o Sorteos efectuados en los términos de la Ley de Hacienda Municipal, se disminuirán de la base gravable de este Impuesto, dicha disminución se efectuará en la declaración de pago mensual siguiente a la declaración en que se haya efectuado el entero del impuesto municipal.

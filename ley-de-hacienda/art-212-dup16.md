@@ -1,4 +1,1 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
-(ADICIONADO, B.O. 6 DE AGOSTO DE 2012)
-Artículo 212-G 15.- Los fabricantes, ensambladores y distribuidores autorizados, así como los comerciantes en el ramo de vehículos, que tengan establecimiento en el Estado, tendrán la obligación de proporcionar a la Secretaría de Hacienda a más tardar el día 17 de cada mes, la información relativa al precio de enajenación al consumidor de cada unidad vendida en el territorio estatal en el mes inmediato anterior, a través de medios electrónicos procesados en los términos que señale dicha Secretaría. Los qué tengan más de un establecimiento, deberán proporcionar esta información, haciendo la separación por cada uno de los establecimientos.
-Tratándose de automóviles de más de diez años modelos anteriores al de aplicación de esta Sección, el impuesto se pagará de conformidad con los ordenamientos fiscales municipales aplicables.
+Artículo 212-G 15.- (DEROGADO, B.O. 19 DE DICIEMBRE DE 2013)

@@ -14,3 +14,5 @@ autobuses, torton, $3, 250.00$2, 050.00$1, 150.00
 minibuses y
 microbuses:
 Motocicletas:$250.00$150.00$120.00
+(ADICIONADO, B.O. 19 DE DICIEMBRE DE 2013)
+Remolques:$350.00$200.00$175.00
