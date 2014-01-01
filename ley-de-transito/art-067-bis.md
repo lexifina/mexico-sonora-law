@@ -1,0 +1,3 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, B.O. 21 DE NOVIEMBRE DE 2013)
+ARTICULO 67 BIS.- Toda bicicleta de 2 o 3 ruedas que transite por la vía pública, deberá estar provista de frenos que actúen en forma mecánica e independiente sobre la rueda o ruedas delanteras y sobre la rueda o ruedas traseras que permitan aminorar la marcha de la bicicleta e inmovilizarla de modo seguro, rápido y eficaz. Deberán conservarse en buen estado de funcionamiento, procurando que su acción sea la más uniforme posible sobre todas las ruedas.
