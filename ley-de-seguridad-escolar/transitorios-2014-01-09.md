@@ -1,0 +1,4 @@
+B.O. 9 DE ENERO DE 2014.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO SEGUNDO.- El Ejecutivo del Estado cuenta con un plazo de ciento ochenta días, a partir de la publicación del presente decreto, para expedir la reglamentación y el Programa de Seguridad Escolar correspondiente, que deberán publicarse en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO TERCERO.- El Ejecutivo del Estado, a través de las dependencias a su cargo y las que se señalan en el artículo 7 de la Ley de Seguridad Escolar para el Estado de Sonora, cuenta con un plazo de trescientos sesenta días naturales, contado a partir de la publicación del presente decreto, para acreditar a la totalidad del personal docente, administrativo y de apoyo, que labora en las instituciones educativas donde aplique la Ley de Seguridad Escolar para el Estado de Sonora.
