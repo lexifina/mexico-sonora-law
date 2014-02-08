@@ -1,4 +1,4 @@
-CODIGO CIVIL PARA EL ESTADO DE SONORA
+CÓDIGO CIVIL PARA EL ESTADO DE SONORA
 Código publicado en la Sección Segunda del Boletín Oficial del Estado de Sonora, el miércoles 24 de agosto de 1949.
 EL C. LIC. HORACIO SOBARZO, GOBERNADOR CONSTITUCIONAL INTERINO DEL ESTADO LIBRE Y SOBERANO DE SONORA, A SUS HABITANTES SABED:
 Que el H. Congreso del Estado se ha servido dirigirme la siguiente LEY:

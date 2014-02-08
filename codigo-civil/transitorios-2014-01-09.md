@@ -1,0 +1,6 @@
+B.O. 9 DE ENERO DE 2014.
+ARTÍCULO PRIMERO.- Esta Ley entrará en vigor a los 30 días siguientes al de su publicación en el Boletín Oficial del Estado de Sonora.
+ARTÍCULO SEGUNDO.- Se abroga la Ley que regula la Organización de la Institución del Registro Civil en el Estado de Sonora.
+ARTÍCULO TERCERO.- Al entrar en vigor la siguiente Ley se derogarán los siguientes artículos del Código Civil para el Estado de Sonora: 130, 131, 132, 133, 134, 135, 136, 137, 138, 139, 140, 141, 142, 143, 144, 145, 146, 147, 148, 149, 150, 151, 152, 153, 154, 155, 156, 157, 158, 159, 160, 161, 162, 163, 164, 165, 166, 167, 168, 169, 170, 171, 172, 173, 174, 175, 176, 177, 178, 179, 180, 181, 182, 183, 184, 185, 189, 190, 191, 192, 193, 194, 195, 196, 197, 198, 199, 200, 201, 202, 203, 204, 205, 206, 207, 208, 209, 210, 211, 212, 213, 214, 215, 216, 217, 218, 219, 221, 221 (SIC), 223, 224, 225, 226, 227, 228, 228 BIS, 229, 230, y 231.
+ARTÍCULO CUARTO.- El Ejecutivo del Estado deberá emitir el Reglamento de la presente Ley dentro de los 180 días hábiles contados a partir del día siguiente de la entrada en vigor de la misma.
+ARTÍCULO QUINTO.- Quedan sin efecto las disposiciones legales que contravengan a lo preceptuado en esta Ley.
