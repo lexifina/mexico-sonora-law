@@ -1,0 +1,9 @@
+LEY DEL REGISTRO CIVIL PARA EL ESTADO DE SONORA
+Ley publicada en la Sección VI del Boletín Oficial del Estado de Sonora, el jueves 9 de enero de 2014.
+GUILLERMO PADRÉS ELÍAS, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
+Que el Honorable Congreso del Estado, se ha servido dirigirme la siguiente
+LEY:
+NÚMERO 95
+EL H. CONGRESO DEL ESTADO LIBRE Y SOBERANO DE SONORA, EN NOMBRE DEL PUEBLO, TIENE A BIEN EXPEDIR EL SIGUIENTE:
+L E Y
+DEL REGISTRO CIVIL PARA EL ESTADO DE SONORA
