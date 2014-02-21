@@ -1,5 +1,5 @@
 B.O. 22 DE FEBRERO DE 2007.
-LEY No. 253, QUE REFORMA, ADICIONA Y DEROGA DIVERSOS ARTICULOS DE LA CONSTITUCION.
+LEY No. 253, QUE REFORMA, ADICIONA Y DEROGA DIVERSOS ARTÍCULOS DE LA CONSTITUCIÓN.
 ARTÍCULO PRIMERO.- La presente ley entrará en vigor el día de su publicación en el Boletín Oficial del Gobierno del Estado, previo cómputo que se realice de la aprobación o rechazo que emitan los ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente ley para los efectos dispuestos por el artículo 163 de la Constitución Política Local.
 Se Instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que realicen el cómputo respectivo y la remita al Titular del Poder Ejecutivo, en caso de resultar aprobada, para su publicación en el Boletín Oficial del Gobierno del Estado.
 ARTÍCULO SEGUNDO.- A partir de la entrada en vigor de esta ley, dentro de los tres meses siguientes deberán establecerse las reformas a la Ley Orgánica del Poder Judicial del Estado para adecuarlas a las disposiciones constitucionales contenidas en la presente ley.

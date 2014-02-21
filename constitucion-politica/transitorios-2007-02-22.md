@@ -1,4 +1,4 @@
 B.O. 22 DE FEBRERO DE 2007.
-LEY No. 165, QUE REFORMA LOS ARTICULOS 95, 101 Y 150-B DE LA CONSTITUCION.
+LEY No. 165, QUE REFORMA LOS ARTÍCULOS 95, 101 Y 150-B DE LA CONSTITUCIÓN.
 ARTICULO UNICO.- La presente Ley entrará en vigor el día de su publicación en el Boletín Oficial del Gobierno del Estado, previo cómputo que se realice de la aprobación o rechazo, en su caso, que emitan los ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente Ley para los efectos dispuestos por el artículo 163 de la Constitución Política Local.
 Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que lleve a cabo el cómputo respectivo y en caso de resultar aprobada la presente Ley por, cuando menos, la mitad más uno de los ayuntamientos de los Municipios de la Entidad, se remita al Titular del Poder Ejecutivo Estatal para su publicación en el Boletín Oficial del Gobierno del Estado.

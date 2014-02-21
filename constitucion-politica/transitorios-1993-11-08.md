@@ -1,5 +1,5 @@
 B.O. 8 DE NOVIEMBRE DE 1993.
-LEY No. 304, QUE REFORMA DIVERSOS ARTICULOS DE LA CONSTITUCION.
+LEY No. 304, QUE REFORMA DIVERSOS ARTÍCULOS DE LA CONSTITUCIÓN.
 ARTICULO PRIMERO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado.
 ARTICULO SEGUNDO.- Los Diputados que se elijan a la LIV Legislatura del Congreso del Estado, durarán en sus funciones del 13 de octubre de 1994 al 15 de septiembre de 1997.
 ARTICULO TERCERO.- El período ordinario del Congreso del Estado, correspondiente a los meses de noviembre a diciembre del año de 1993 y los períodos ordinarios correspondientes al año de 1994 se celebrarán de acuerdo con las fechas que han venido rigiendo en los términos de la Ley 109, publicada en el Boletín Oficial número 23, sección I del 17 de septiembre de 1987.

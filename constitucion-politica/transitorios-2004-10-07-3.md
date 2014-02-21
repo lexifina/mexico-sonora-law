@@ -1,4 +1,4 @@
 B.O. 7 DE OCTUBRE DE 2004.
-LEY No. 79, QUE REFORMA DIVERSAS DISPOSICIONES DE LA CONSTITUCION.
+LEY No. 79, QUE REFORMA DIVERSAS DISPOSICIONES DE LA CONSTITUCIÓN.
 UNICO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado, previo cómputo que se realice de la aprobación o rechazo, en su caso, que emitan los Ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente Ley para los efectos dispuestos por el artículo 163 de la Constitución Política Local.
 Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto que lleve a cabo el cómputo respectivo y en caso de resultar aprobada la presente Ley, por cuando menos, la mitad más uno de los Ayuntamientos de los Municipios de la Entidad, se remita al Titular del Poder Ejecutivo Estatal para su publicación en el Boletín Oficial del Gobierno del Estado.
