@@ -7,3 +7,4 @@ ARTÍCULO QUINTO.- Quedan sin efecto las disposiciones legales que contravengan 
 Comuníquese al Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado.- SALÓN DE SESIONES DEL H. CONGRESO DEL ESTADO Hermosillo, Sonora, 14 de diciembre de 2013.- C JUAN MANUEL ARMENTA MONTAÑO, DIPUTADO PRESIDENTE.- C. MIREYA ALMADA BELTRÁN, DIPUTADA SECRETARIA, C. ROSSANA COBOJ GARCÍA.- DIPUTADA SECRETARIA.- RÚBRICAS.
 Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
 Dado en la Residencia del Poder Ejecutivo, en la Ciudad de Hermosillo, Sonora, a los ocho días del mes de enero del año dos mil catorce. - SUFRAGIO EFECTIVO. NO REELECCIÓN. EL GOBERNADOR DEL ESTADO. - GUILLERMO PADRÉS ELÍAS.- EL SECRETARIO DE GOBIERNO.- LIC. ROBERTO ROMERO LÓPEZ. – RUBRICAS.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
