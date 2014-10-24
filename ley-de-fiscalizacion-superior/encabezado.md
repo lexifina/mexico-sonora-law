@@ -1,4 +1,4 @@
-LEY DE FISCALIZACION SUPERIOR PARA EL ESTADO DE SONORA
+LEY DE FISCALIZACIÓN SUPERIOR PARA EL ESTADO DE SONORA
 Ley publicada en el Boletín Oficial del Estado de Sonora, el lunes 14 de julio de 2008.
 EDUARDO BOURS CASTELO, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
 Que el Honorable Congreso del Estado, se ha servido dirigirme la siguiente:
