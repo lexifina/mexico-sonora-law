@@ -1,4 +1,4 @@
-LEY DE OBRAS PUBLICAS Y SERVICIOS RELACIONADOS CON LAS MISMAS PARA EL ESTADO DE SONORA
+LEY DE OBRAS PÚBLICAS Y SERVICIOS RELACIONADOS CON LAS MISMAS PARA EL ESTADO DE SONORA
 Ley publicada en la Sección Uno del Boletín Oficial del Estado de Sonora, el jueves 1 de marzo de 2007.
 Al margen un sello que dice: Gobierno del Estado de Sonora.
 EDUARDO BOURS CASTELO, Gobernador del Estado Libre y Soberano de Sonora a sus habitantes sabed:
