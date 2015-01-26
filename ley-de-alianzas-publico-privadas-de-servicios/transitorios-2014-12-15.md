@@ -1,4 +1,6 @@
 B.O. 15 DE DICIEMBRE DE 2014.
 ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor en todo el Estado de Sonora a partir del 1 de enero de 2015, previa su publicación en el Boletín Oficial del Gobierno del Estado, con excepción de las disposiciones contenidas en los artículos tercero, cuarto y quinto del presente ordenamiento, las cuales entrarán en vigor a partir de la publicación de este Decreto en el citado Boletín Oficial del Gobierno del Estado.
+(F. DE E., B.O. 26 DE ENERO DE 2015)
+Asimismo, por lo que toca a las disposiciones contenidas en el artículo sexto del presente Decreto, entrarán en vigor nueve meses después de la publicación de este ordenamiento en el Boletín Oficial del Gobierno del Estado, plazo en el cual los ayuntamientos del Estado deberán presentar ante el Congreso del Estado, las adecuaciones correspondientes a sus leyes de ingresos y presupuestos de ingresos.
 ARTÍCULO SEGUNDO.- Todas aquellas operaciones en materia de derechos registrales, que se hayan formalizado ante notario público y que sean sujetas del arancel del año fiscal 2014, y que estas se presenten para su registro en la vigencia del año fiscal 2015, se les aplicará el arancel vigente en la época en que fueron formalizadas, es decir, en este caso, año fiscal 2014.
 ARTÍCULO TERCERO.- Se derogan todas aquellas disposiciones que se opongan al presente Decreto.
