@@ -1,0 +1,6 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(ADICIONADO, B.O. 22 DE DICIEMBRE DE 2014)
+Artículo 218 Bis 1.- Se otorga un estímulo fiscal consistente en la deducibilidad en el pago del impuesto, a centros educativos privados por la inversión en becas para alumnos con alguna discapacidad dictaminada por la Secretaría de Educación y Cultura en los términos de la normatividad aplicable, no siendo consideradas para este efecto, las dos becas obligatorias a las que hace referencia la fracción III del artículo 47 de la Ley de Educación del Estado de Sonora.
+La Secretaría de Hacienda hará efectivo el estímulo mediante la presentación del comprobante de que la respectiva escuela privada otorgue las becas, al rendir la declaración correspondiente.
+Los contribuyentes beneficiarios al estímulo previsto en este artículo deberán presentar sus declaraciones fiscales de conformidad con las disposiciones vigentes, señalando el monto del impuesto causado y el monto del estímulo a que sean acreedores, mismo que será deducido del impuesto.
+El beneficio que se confiere en el presente artículo no otorga a los contribuyentes el derecho de devolución, ni será aplicable en los accesorios en caso de que estos se hubieren causado.
