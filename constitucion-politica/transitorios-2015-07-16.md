@@ -1,0 +1,4 @@
+B.O. 16 DE JULIO DE 2015.
+ARTÍCULO PRIMERO.- La presente Ley entrará en vigor el día siguiente al de su publicación en el Boletín Oficial del Gobierno del Estado, previo cómputo que se realice de la aprobación o rechazo que emitan los Ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente Ley, a fin de dar cumplimiento a lo establecido por la Constitución Política del Estado Libre y Soberano de Sonora en su artículo 163.
+Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que realicen el computo respectivo y la remitan al Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado, en caso de resultar aprobada.
+ARTÍCULO SEGUNDO.- Al entrar en vigor la presente Ley, deberán impulsarse las reformas y adiciones a la Ley Orgánica del Poder Legislativo del Estado de Sonora y demás disposiciones legales aplicables a la materia.
