@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 16 DE JULIO DE 2015)
+ARTÍCULO 10 BIS.- La Secretaria de Educación y Cultura podrá celebrar convenios con asociaciones civiles legalmente constituidas, cuya finalidad y objeto sea el realizar labor altruista en beneficio de los adultos mayores, para efecto de que las asociaciones civiles canalicen personas adultos mayores para coadyuvar de manera voluntaria en planteles educativos públicos del Estado en las labores de seguridad peatonal de alguna comunidad escolar determinada.
+Los adultos mayores que colaboren en los planteles educativos públicos en términos de lo establecido en el párrafo anterior recibirán cobertura en servicios médicos.
