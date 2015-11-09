@@ -1,5 +1,5 @@
 (ADICIONADO, B.O. 3 DE JULIO DE 1989)
-Artículo 91-A.- El fondo colectivo de retiro de en beneficio de los trabajadores al servicio del Estado, se otorgará en los siguientes casos:
+Artículo 91-A.- El fondo colectivo de retiro en beneficio de los trabajadores al servicio del Estado, se otorgará en los siguientes casos:
 I.- A los trabajadores con 30 años o más de servicio y 15 años de contribución al Instituto, como mínimo, que causen baja definitiva del servicio. En este caso, la suma será de 2.6 veces el salario mínimo general mensual vigente de la capital del Estado.
 II.- A los trabajadores con 15 años o más de servicio e igual tiempo de aportación al Instituto, y 55 años o más de edad, que causen baja definitiva del servicio. En este caso, se entregará la suma que resulte de aplicar, a la cantidad señalada en la fracción que antecede y según los años de servicio que correspondan, el porcentaje establecido en la siguiente tabla:
 AÑOS DE SERVICIOSPORCENTAJE DEL MONTO
