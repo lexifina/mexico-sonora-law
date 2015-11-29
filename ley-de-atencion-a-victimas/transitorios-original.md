@@ -1,0 +1,10 @@
+TRANSITORIOS
+Artículo Primero.- La presente Ley entrará en vigor, previa su publicación en el Boletín Oficial del Estado de Sonora, en los términos establecidos en el artículo único del Decreto número 05, que Declara que el Código Nacional de Procedimientos Penales se incorpora al régimen jurídico del Estado de Sonora, publicado en el Boletín Oficial número 31, sección III, el día jueves 15 de octubre de 2015.
+Artículo Segundo.- Se abroga la Ley número 162, de Atención y Protección de Víctimas del Delito, publicada en el Boletín Oficial número 28, sección II, de fecha 7 de abril de 2008.
+Artículo Tercero.- El Reglamento de la presente Ley deberá expedirse dentro de los noventa días siguientes a la fecha en que esta Ley entre en vigor.
+Artículo Cuarto.- El proyecto de Programa Anual de Atención a Víctimas del Estado deberá ser diseñado por la Comisión Ejecutiva Estatal en un plazo no mayor a seis meses a partir de la aprobación del Plan Anual Integral de Atención a Víctimas.
+Artículo Quinto.- El Fidecomiso del Fondo Estatal deberá quedar constituido para hacer efectivo el cumplimiento de la presente Ley y su Reglamento.
+Una vez Constituido el Fondo Estatal, el Comité Técnico del Fondo deberá quedar instituido y el mismo deberá expedir sus reglas de operación.
+Comuníquese a la Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado.- SALÓN DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 10 de noviembre de 2015. C. LINA ACOSTA CID, DIPUTADA PRESIDENTA.- RÚBRICA.- C. SANDRA M. HERNÁNDEZ BARAJAS, DIPUTADA SECRETARIA.- RÚBRICA.- C TERESA M. OLIVARES OCHOA, DIPUTADA SECRETARIA.- RÚBRICA.
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo. Sonora, a los diecisiete días del mes de noviembre del año dos mil quince.- SUFRAGIO EFECTIVO, NO REELECCIÓN. GOBERNADORA DEL ESTADO - CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- MIGUEL ERNESTO POMPA CORELLA.- RÚBRICA.
