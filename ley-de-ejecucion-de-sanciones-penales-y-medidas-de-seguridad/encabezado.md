@@ -1,5 +1,4 @@
 LEY DE EJECUCIÓN DE SANCIONES PENALES Y MEDIDAS DE SEGURIDAD DEL ESTADO DE SONORA
-N. DE E. DE CONFORMIDAD CON EL ARTÍCULO PRIMERO TRANSITORIO, EL PRESENTE ORDENAMIENTO ENTRA EN VIGOR A MÁS TARDAR EL 18 DE JUNIO DE 2014, PREVIA SU PUBLICACIÓN.
 Ley publicada en la Secc. III del Boletín Oficial del Estado de Sonora, el lunes 22 de octubre de 2012.
 GUILLERMO PADRES ELIAS, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
 Que el Honorable Congreso del Estado, se ha servido dirigirme la siguiente

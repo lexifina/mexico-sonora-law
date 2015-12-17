@@ -1,0 +1,8 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE SECCIÓN, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, B.O. 14 DE DICIEMBRE DE 2015)
+SECCIÓN NOVENA
+SEPARACIÓN INMEDIATA DEL DOMICILIO
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(ADICIONADO, B.O. 14 DE DICIEMBRE DE 2015)
+Artículo 35 Bis P. Ejecución de la medida.
+Si se decreta la medida cautelar de separación inmediata del domicilio del imputado, se comunicará el proveído a la Secretaría de Seguridad Pública o a otros cuerpos de seguridad pública en el Estado, para su efectivo cumplimiento.
