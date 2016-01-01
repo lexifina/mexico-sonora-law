@@ -1,7 +1,9 @@
 (ADICIONADO, B.O. 31 DE DICIEMBRE DE 1977)
 Artículo 182 Bis 5.- Los sujetos de este impuesto deberán registrarse en la oficina recaudadora de su domicilio, dentro de los diez días siguientes a la iniciación de operaciones.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE CAPÍTULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(REFORMADA SU DENOMINACIÓN, B.O. 14 DE DICIEMBRE DE 2015)
 Capítulo Quinto
-De los Impuestos Sobre Capitales
+Del Impuesto Sobre Capitales
 (REFORMADA SU DENOMINACIÓN, B.O. 29 DE DICIEMBRE DE 1983)
 Sección Primera
 Del Impuesto Sobre Traslación de Dominio de Bienes Muebles

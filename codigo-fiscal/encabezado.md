@@ -1,5 +1,4 @@
 CÓDIGO FISCAL DEL ESTADO DE SONORA
-N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL BOLETÍN OFICIAL DEL 2 DE MARZO DE 2015.
 Código publicado en la Segunda Sección del Boletín Oficial del Estado de Sonora, el lunes 12 de junio del 2000.
 EL C. ARMANDO LOPEZ NOGALES, Gobernador Constitucional del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
 Que el H. Congreso del Estado, se ha servido dirigirme la siguiente LEY:
