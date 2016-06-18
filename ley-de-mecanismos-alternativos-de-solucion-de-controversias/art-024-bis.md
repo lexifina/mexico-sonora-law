@@ -1,0 +1,9 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, B.O. 11 DE OCTUBRE DE 2012)
+Artículo 24 Bis.- Para ser Director de un Centro de Justicia Alternativa del Estado, se requiere:
+I.- Estar en pleno goce y ejercicio de sus derechos civiles y políticos;
+II.- Poseer, al día en que inicie el cargo, título profesional de licenciado en derecho y cédula profesional, y contar con experiencia mínima de tres años en el ejercicio de la profesión;
+II.- Contar con los conocimientos, aptitudes y habilidades suficientes para desempeñar el cargo de manera eficiente;
+IV.- No haber sido sentenciado por delito doloso que amerite pena privativa de libertad, ni estar inhabilitado para desempeñar empleo, cargo o comisión en el servicio público;
+V.- Ser de reconocida honorabilidad; y
+VI.- Los demás requisitos que establezcan la ley, su respectivo reglamento y demás disposiciones que resulten aplicables.
