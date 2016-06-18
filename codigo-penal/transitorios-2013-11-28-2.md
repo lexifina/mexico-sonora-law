@@ -1,0 +1,4 @@
+B.O. 28 DE NOVIEMBRE DE 2013.
+DECRETO NÚMERO 64 POR EL QUE SE REFORMAN LOS ARTÍCULOS 21, 29 BIS, 100, SEGUNDO PÁRRAFO, 258 PRIMER PÁRRAFO Y SE ADICIONAN EL CAPÍTULO III BIS AL TÍTULO DÉCIMO SEXTO Y LOS ARTÍCULOS 263 BIS 1, 263 BIS 2 Y 263 BIS 3, TODOS DEL CÓDIGO PENAL DEL ESTADO DE SONORA.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO SEGUNDO.- El Congreso del Estado de Sonora acuerda que, en un plazo no mayor a seis meses, contado a partir de la entrada en vigor del presente Decreto, se legislará para establecer en el Código de Procedimientos Penales para el Estado de Sonora, los protocolos de investigación con perspectiva de género, necesarios para una correcta procuración e impartición de justicia en lo concerniente al feminicidio.
