@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 2 DE DICIEMBRE DE 2013)
+ARTICULO 181 Bis 5.- Quién cometa el delito de desaparición forzada de persona no tendrá derecho a gozar del perdón judicial, conmutación de sanciones, remisión parcial de la pena, tratamiento de pre liberación, libertad preparatoria, amnistía, indulto o cualquier otro beneficio que la Ley respectiva establezca, salvo los casos específicos estipulados en el artículo anterior. Tampoco se le considerará de carácter político para los efectos de la extradición.

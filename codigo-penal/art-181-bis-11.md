@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 2 DE DICIEMBRE DE 2013)
+ARTICULO 181 Bis 11.- El Estado y los Municipios responderán, solidariamente, ante la víctima u ofendido del delito por la comisión del mismo por parte de los servidores públicos. Dicha responsabilidad incluirá el pago de los daños y perjuicios y el Juez, al resolver en la sentencia, fijará la misma en cantidad líquida, en beneficio de la víctima o del ofendido.

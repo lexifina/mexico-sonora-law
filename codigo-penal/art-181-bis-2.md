@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 2 DE DICIEMBRE DE 2013)
+Artículo 181 Bis 2.- Se sancionará con diez a veinte años de prisión, además de la inhabilitación para el desempeño de cualquier cargo, empleo o comisión públicos de cinco a diez años, al servidor público que, teniendo conocimiento de la comisión del delito de desaparición forzada de persona por algún subordinado, no adoptare las medidas necesarias y razonables para evitar su consumación.

@@ -1,0 +1,6 @@
+(ADICIONADO, B.O. 2 DE DICIEMBRE DE 2013)
+Artículo 181 Bis 4.- Quien haya participado en hechos con características del delito de desaparición forzada de personas y proporcione al Ministerio Público datos relevantes para dar a conocer con el paradero de la víctima, podrá recibir los siguientes beneficios:
+I.- Cuando no exista averiguación previa en su contra, los elementos de prueba que aporte o se deriven de la averiguación previa iniciada por su colaboración, no serán tomadas en cuenta en su contra. Este beneficio sólo podrá otorgarse, en una ocasión, respecto de la misma persona; o
+II.- Cuando un sentenciado aporte pruebas ciertas que, valoradas por el Juez, sirvan para sentenciar a otros que hayan participado con funciones de administración, dirección o supervisión del delito de desaparición forzada, podrá otorgársele la remisión parcial de la pena, hasta en una mitad de la pena de prisión impuesta.
+En la imposición de las penas, así como en el otorgamiento de los beneficios a que se refiere el presente artículo, a solicitud del Ministerio Público, el Juez tomará en cuenta la participación del colaborador del delito, excluyéndose de este beneficio al autor intelectual o a quien haya dirigido la ejecución material.
+La autoridad mantendrá con carácter confidencial la identidad del individuo que se acoja a los beneficios de este artículo.
