@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 4 DE DICIEMBRE DE 2014)
+ARTICULO 312 BIS.- Se considera que comete el delito de abigeato y se sancionará con la misma pena establecida para el abigeato de ganado bovino o porcino, al que se apodere de una o más cabezas o practique cacería furtiva de borrego cimarrón uovíscanadenis, venado cola blanca uodocoileusvirginianus, venado bura u odocoileushemionus, berrendo o antilocapra americana, o de jabalí de collar o dycotilestajacu, siempre que se trate de semovientes ajenos.
