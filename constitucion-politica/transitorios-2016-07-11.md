@@ -1,0 +1,9 @@
+B.O. 11 DE JULIO DE 2016.
+[N. DE E. TRANSITORIOS DE LA "LEY NÚMERO 88, QUE REFORMA DIVERSAS DISPOSICIONES DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SONORA".]
+ARTÍCULO PRIMERO.- La presente Ley entrará en vigor a partir del inicio del primer periodo de sesiones ordinarias correspondiente al segundo año del ejercicio constitucional de la LXI Legislatura del Congreso del Estado, previo cómputo que se realice de la aprobación o rechazo que emitan los Ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente Ley, a fin de dar cumplimiento a lo establecido por la Constitución Política del Estado de Sonora en su artículo 163.
+Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que realicen el cómputo respectivo y la remitan al Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado, en caso de resultar aprobada.
+ARTÍCULO SEGUNDO.- Para efectos de lo dispuesto por los artículos 35 y 41 constitucionales que se reforman mediante la presente Ley, se estará a lo siguiente:
+A) El segundo periodo de sesiones extraordinarias del tercer año del ejercicio constitucional de la LXI Legislatura culminará el día 15 de septiembre de 2018.
+B) Por única ocasión, el primer periodo de sesiones ordinarias del primer año del ejercicio constitucional de la LXII Legislatura dará inicio el 16 de septiembre de 2018.
+C) Los diputados del Congreso del Estado para integrar la LXII Legislatura, serán electos por el periodo comprendido del 16 de septiembre de 2018 hasta el último minuto del 31 de agosto del año 2021.
+ARTÍCULO TERCERO.- El Congreso del Estado a más tardar el 30 de junio de 2017, deberá llevar a cabo las modificaciones necesarias para la adecuación de la legislación secundaria en materia electoral, a efecto de homogenizarla a las disposiciones que contiene la presente Ley.
