@@ -1,2 +1,1 @@
-(ADICIONADO, B.O. 14 DE JULIO DE 2008)
-ARTICULO 4o. BIS.- Bajo ninguna circunstancia, se considerará como financiamiento las obligaciones de hacer o no hacer adquiridas por los entes públicos bajo declaraciones, convenios o contratos derivados de Alianzas Público Privadas en términos de la legislación aplicable que celebren, siempre que los pagos que en su caso deriven de dichas obligaciones no constituyan una cantidad predeterminada, aunque si puedan ser determinables mediante una formula previamente acordada y aprobada por la Secretaría, y únicamente sean pagaderas al ocurrir un acontecimiento futuro e incierto.
+ARTICULO 4o Bis.- (DEROGADO, B.O. 21 DE OCTUBRE DE 2016)

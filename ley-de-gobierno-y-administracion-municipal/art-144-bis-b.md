@@ -1,0 +1,8 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO OCTAVO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
+(ADICIONADO, B.O. 21 DE OCTUBRE DE 2016)
+Artículo 144 Bis B.- Los Ingresos Excedentes derivados de Ingresos de Libre Disposición del Municipio deberán ser destinados a los siguientes conceptos:
+I.- Por lo menos el cincuenta por ciento para la amortización anticipada de la Deuda Pública conforme a lo establecido en la Ley de Deuda Pública del Estado de Sonora, el pago de adeudos de ejercicios fiscales anteriores, pasivos circulantes y otras obligaciones, en cuyos contratos se haya pactado el pago anticipado sin incurrir en penalidades y representen una disminución del saldo registrado en la cuenta pública del cierre del ejercicio inmediato anterior, así como el pago de sentencias definitivas emitidas por la autoridad competente, la aportación a fondos para la atención de desastres naturales y de pensiones; y
+II.- En su caso, el remanente para:
+a) Inversión pública productiva tal y como se define en la Ley de Deuda Pública del Estado de Sonora, a través de un fondo que se constituya para tal efecto, con el fin de que los recursos correspondientes se ejerzan a más tardar en el ejercicio inmediato siguiente; y
+b) La creación de un fondo cuyo objetivo sea compensar la caída de Ingresos de Libre Disposición de ejercicios subsecuentes.
+Los Ingresos Excedentes, derivados de Ingresos de Libre Disposición de los Municipios podrán destinarse a los rubros mencionados en el presente artículo, sin limitación alguna, siempre y cuando el Municipio se clasifique en un nivel de endeudamiento sostenible de acuerdo al Sistema de Alertas que lleva la Secretaría de Hacienda y Crédito Público.

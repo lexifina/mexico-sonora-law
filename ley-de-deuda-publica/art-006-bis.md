@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 21 DE OCTUBRE DE 2016)
+ARTICULO 6o Bis.- El Congreso del Estado, previo al otorgamiento de cualesquiera de las autorizaciones a las que se refiere el artículo inmediato anterior, deberá haber realizado un análisis de la capacidad de pago del Ente Público a cuyo cargo estaría la Deuda Pública u Obligaciones correspondientes, del destino del Financiamiento u Obligación y, en su caso, del otorgamiento de recursos como Fuente de Pago o Garantía de Pago.
