@@ -1,0 +1,5 @@
+B.O. 3 DE NOVIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DE LA "LEY NÚMERO 91, QUE REFORMA EL ARTÍCULO 150-A DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SONORA".]
+ARTÍCULO PRIMERO.- La presente Ley entrará en vigor el día siguiente al de su publicación en el Boletín Oficial del Gobierno del Estado, previo cómputo que se realice de la aprobación o rechazo que emitan los Ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente Ley, a fin de dar cumplimiento a lo establecido por la Constitución Política del Estado de Sonora en su artículo 163.
+Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que realicen el computo respectivo y la remitan al Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado, en caso de resultar aprobada.
+ARTÍCULO SEGUNDO.- Se abroga la Ley número 264, que reforma el tercer párrafo del artículo 150-A de la Constitución Política del Estado de Sonora, aprobada por el Pleno de la Sexagésima Legislatura, en sesión del día 30 de junio de 2015.
