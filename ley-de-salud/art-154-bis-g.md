@@ -1,1 +1,2 @@
-ARTICULO 154 BIS G.- (DEROGADO POR ARTÍCULO SEGUNDO TRANSITORIO DE LEY DE DONACIÓN Y TRASPLANTES PARA ORGANISMOS HUMANOS, PUBLICADA EN EL B. O. EL 10 DE JUNIO DE 2005)
+(REFORMADO [N. DE E. ADICIONADO], B.O. 22 DE NOVIEMBRE DE 2016)
+ARTÍCULO 154 BIS G.- La donación de sangre es voluntaria y deberá realizarse en los establecimientos de salud públicos y privados autorizados por la Secretaría, de conformidad a las disposiciones legales y las normas oficiales expedidas para tal efecto.
