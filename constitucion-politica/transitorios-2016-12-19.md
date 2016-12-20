@@ -1,0 +1,4 @@
+B.O. 19 DE DICIEMBRE DE 2016.
+[N. DE E. TRANSITORIO DE LA "LEY NÚMERO 93, QUE REFORMA LA FRACCIÓN VIII DEL ARTÍCULO 64 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SONORA".]
+ARTÍCULO ÚNICO.- La presente Ley entrará en vigor el día siguiente al de su publicación en el Boletín Oficial del Gobierno del Estado, previo cómputo que se realice de la aprobación o rechazo que emitan los Ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente Ley, a fin de dar cumplimiento a lo establecido por la Constitución Política del Estado de Sonora en su artículo 163.
+Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que realicen el computo respectivo y la remitan al Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado, en caso de resultar aprobada.
