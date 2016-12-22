@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 22 DE DICIEMBRE DE 2016)
+ARTICULO 234 BIS 1.- Los propietarios de animales a que se refiere el artículo anterior, estarán obligado (sic) a brindarles la atención y cuidados de higiene necesarios, que permitan la eliminación o ausencia de piojos, pulgas o garrapatas que pueden ser trasmisores de la Rickettsiosis, también conocida como enfermedad de la Rickettsia, o de la enfermedad de Lyme, también conocida como Borreliosis.
