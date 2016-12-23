@@ -1,0 +1,4 @@
+(ADICIONADO, B.O. 22 DE DICIEMBRE DE 2016)
+ARTÍCULO 53 BIS 22.- Independientemente de las sanciones que correspondan, ya sea administrativa, civil o penal, la Procuraduría de la Defensa del Adulto Mayor podrá aplicar a patrones, funcionarios públicos o cualquier otra persona que viole o amenace con violar los derechos de las personas mayores, lo siguiente:
+I.- La observación por escrito acerca de la violación o amenaza contra el derecho de que se trate en el caso particular, citándolos para ser informados debidamente sobre los derechos de las personas adultas en plenitud; y
+II.- Conminarlos para que cese de inmediato la situación que viola o pone en peligro el derecho en cuestión, cuando la persona llamada no se presente en el plazo conferido para tal efecto o bien, cuando se haya presentado pero continúe en la misma situación perjudicial a la persona adulta mayor.
