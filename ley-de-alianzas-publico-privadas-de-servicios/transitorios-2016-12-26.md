@@ -1,0 +1,4 @@
+B.O. 26 DE DICIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 105, QUE REFORMA, DEROGA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY DE ALIANZAS PÚBLICO PRIVADAS DE SERVICIOS DEL ESTADO DE SONORA, DE LA LEY DE GOBIERNO Y ADMINISTRACIÓN MUNICIPAL Y DE LA LEY DE OBRAS PÚBLICAS Y SERVICIOS RELACIONADOS CON LAS MISMAS PARA EL ESTADO DE SONORA".]
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO SEGUNDO.- La Secretaría de Hacienda del Estado deberá emitir y publicar en el Boletín Oficial del Gobierno del Estado, dentro de los 180 días hábiles posteriores a la entrada en vigor del presente Decreto, los lineamientos y metodología para la elaboración del análisis de costo-beneficio a que se refiere el artículo 21 de la Ley de Alianzas Público Privadas de Servicios del Estado de Sonora.

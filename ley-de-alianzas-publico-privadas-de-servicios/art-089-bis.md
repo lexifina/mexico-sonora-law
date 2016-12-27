@@ -1,0 +1,8 @@
+(ADICIONADO, B.O. 26 DE DICIEMBRE DE 2016)
+ARTÍCULO 89 BIS.- En caso de que así lo permita la rentabilidad del proyecto y según se haya establecido en las bases del concurso y en el contrato respectivo, el Ente Contratante podrá exigir al proveedor, con independencia de lo que señalen otras disposiciones aplicables, alguna o algunas de las prestaciones siguientes:
+I.- El reembolso del valor de los inmuebles, bienes y derechos aportados por dependencias o entidades del sector público, utilizados en el proyecto;
+II.- El reembolso de las cantidades por concepto de remanentes y otros rubros en la forma y términos que se establezcan en las bases o en el contrato.
+III.- El pago de derechos por la supervisión y vigilancia de la ejecución de la obra o de la prestación de los servicios, previstos en las disposiciones legales aplicables; o
+IV.- Cualquier otra que las partes estipulen en el contrato.
+Los seguros que el proveedor deberá contratar y mantener vigentes cubrirán, por lo menos, los riesgos a que estén expuestos los usuarios, la infraestructura y todos los bienes afectos al servicio, así como los de responsabilidad civil.
+Para estos efectos, el proveedor contratará con empresa especializada, previamente aprobada por el Ente Contratante, la elaboración de un estudio de riesgos, coberturas, indemnizaciones, montos mínimos, vigencia y demás términos y condiciones de los seguros. Dicho estudio servirá de base para que las partes acuerden las características y alcances de tales seguros.

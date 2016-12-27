@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 26 DE DICIEMBRE DE 2016)
+ARTÍCULO 46 BIS.- Previo a la emisión de la convocatoria, el Ente Contratante podrá publicar las pre-bases del proyecto a fin de invitar a los interesados, profesionales, cámaras o asociaciones empresariales del ramo para participar en la revisión y opinión de las mismas. Las pre-bases se sujetarán a los requisitos establecidos por la Secretaría o el Ayuntamiento, en su caso.

@@ -1,4 +1,5 @@
-LEY DE ALIANZAS PUBLICO PRIVADAS DE SERVICIOS DEL ESTADO DE SONORA
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
+LEY DE ALIANZAS PÚBLICO PRIVADAS DE SERVICIOS DEL ESTADO DE SONORA
 Ley publicada en la Sección I del Boletín Oficial del Estado de Sonora, el lunes 14 de julio de 2008.
 EDUARDO BOURS CASTELO, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
 Que el Honorable Congreso del Estado, se ha servido dirigirme la siguiente:
