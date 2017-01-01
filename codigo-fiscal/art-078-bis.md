@@ -9,7 +9,20 @@ III.- Simultáneamente a la autorización de pago a plazos, ya sea en parcialida
 IV.- Se revocará la autorización para pagar a plazos en parcialidades o en forma diferida, cuando:
 a) Desaparezca o resulte insuficiente la garantía del interés fiscal, sin que el contribuyente dé nueva garantía o amplíe la que resulte insuficiente.
 b) El contribuyente se encuentre sometido a un procedimiento de concurso mercantil o sea declarado en quiebra.
-c) Tratándose del pago en parcialidades el contribuyente no cumpla en tiempo y monto con tres parcialidades o, en su caso, con la última.
+(REFORMADO, B.O. 26 DE DICIEMBRE DE 2016)
+c) Tratándose del pago en parcialidades el contribuyente no cumpla en tiempo y monto con tres parcialidades sucesivas o, en su caso, con la última.
 d) Tratándose del pago diferido, se venza el plazo para realizar el pago y éste no se efectúe.
 En los supuestos señalados en los incisos anteriores las autoridades fiscales requerirán y harán exigible el saldo mediante el procedimiento administrativo de ejecución.
 El saldo no cubierto en el pago a plazos causará recargos, de conformidad con lo establecido en el artículo 26 de este Código, desde la fecha en que se haya efectuado el último pago o desde aquella en que debió haberse efectuado, conforme a la autorización respectiva.
+(ADICIONADA, B.O. 26 DE DICIEMBRE DE 2016)
+V.- Los pagos efectuados durante la vigencia de la autorización se deberán aplicar al periodo más antiguo, en el siguiente orden:
+a) Recargos por prórroga.
+b) Recargos por mora.
+c) Accesorios en el siguiente orden:
+1.- Multas.
+2.- Gastos extraordinarios.
+3.- Gastos de ejecución.
+4.- Recargos.
+d) Monto de las contribuciones omitidas.
+(ADICIONADO, B.O. 26 DE DICIEMBRE DE 2016)
+El pago a plazos sólo procederá para el caso de que el contribuyente no tenga otros adeudos con la Secretaría de Hacienda y, en caso de tenerlos, deberá pagarlos o adicionarlos al monto respecto del cual solicita la autorización del pago a plazos.

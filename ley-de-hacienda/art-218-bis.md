@@ -6,8 +6,9 @@ Para los fines del presente artículo, deberá entenderse por esquema de aportac
 El presente estímulo será otorgado de conformidad con los lineamientos que al efecto expida la Secretaría de Hacienda.
 (ADICIONADO, B.O. 15 DE ENERO DE 2009)
 La Secretaría de Hacienda hará efectivo el estímulo mediante la presentación del comprobante de la aportación expedido a nombre del contribuyente, al rendir la declaración correspondiente.
-(REFORMADO, B.O. 29 DE OCTUBRE DE 2009)
-La Secretaría de Hacienda otorgará anualmente este beneficio, el cual será equivalente al 8% del impuesto presupuestado en la Ley de Ingresos del Estado del ejercicio correspondiente.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+(REFORMADO, B.O. 26 DE DICIEMBRE DE 2016)
+La Secretaría de Hacienda otorgará anualmente este beneficio del 8% del impuesto presupuestado en la Ley de Ingresos del Estado del ejercicio correspondiente.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO, B.O. 31 DE DICIEMBRE DE 2012)
 El otorgamiento del estímulo en el pago del impuesto a que se refiere el presente artículo, no exime el pago del impuesto para el sostenimiento de las Universidades de Sonora y de la contribución para el Consejo Estatal de Concertación para la Obra Pública ni las Contribuciones para el Fortalecimiento de la Infraestructura Educativa.

@@ -1,5 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, B.O. 31 DE DICIEMBRE DE 2012)
-Artículo 292 Bis-2.- Toda la recaudación que por concepto de esta contribución se obtenga, será para mantener y crear infraestructura educativa.
-(ADICIONADO, B.O. 19 DE DICIEMBRE DE 2013)
-De igual manera, esta Contribución se podrá afectar como garantía o en su caso como fuente de pago de los financiamientos obtenidos por el Gobierno del Estado de Sonora de manera específica para realizar obra pública consistente en mantener y crear infraestructura educativa.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+(REFORMADO, B.O. 26 DE DICIEMBRE DE 2016)
+ARTÍCULO 292 BIS-2.- Toda la recaudación que por concepto de esta contribución se obtenga, será para conservar, crear y mantener infraestructura educativa, equipamiento para la prestación del servicio de educación en todos los niveles, incluyendo el servicio de transporte escolar, así como el financiamiento del programa de apoyo escolar.

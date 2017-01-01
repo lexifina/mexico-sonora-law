@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 26 DE DICIEMBRE DE 2016)
+ARTÍCULO 146 SEXIES.- Los créditos fiscales que se encuentren registrados por la autoridad como créditos incobrables, se extinguirán transcurridos cinco años contados a partir de que se haya realizado dicho registro, cuando exista imposibilidad práctica de cobro.
+Para estos efectos, se considera que existe imposibilidad práctica de cobro, entre otras, cuando los deudores no tengan bienes embargables, el deudor hubiera fallecido o desaparecido sin dejar bienes a su nombre o cuando por sentencia firme hubiera sido declarado en quiebra por falta de activo y siempre que no existan responsables solidarios.
