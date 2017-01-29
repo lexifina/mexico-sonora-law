@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, B.O. 28 DE AGOSTO DE 2008)
+(REFORMADO PRIMER PÁRRAFO, B.O. 28 DE AGOSTO DE 2008)
 Art. 595 BIS.- Tratándose de menores acogidos por una institución pública de asistencia social, la pérdida de la patria potestad se tramitará en juicio especial de acuerdo a las reglas de la vía sumaria, con las siguientes modalidades:
 (REFORMADA, B.O. 28 DE AGOSTO DE 2008)
 I.- Se correrá traslado de la demanda a quienes ejercen la patria potestad; asimismo, a los abuelos paternos y matemos, requiriéndoles para que cumplan las obligaciones a que se refiere el párrafo tercero del artículo 581 del Código Civil para el Estado de Sonora, con apercibimiento de que el incumplimiento injustificado de las mismas les hará perder el derecho a obtener la patria potestad respecto del menor o incapacitado manifestando, en su caso, su interés en ejercer este derecho.

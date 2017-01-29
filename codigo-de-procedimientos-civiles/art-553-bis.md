@@ -1,6 +1,5 @@
 (ADICIONADO, B.O. 17 DE MAYO DEL 2001)
 Art. 553 BIS.- No se requieren formalidades especiales para acudir ante el Juez de Primera Instancia tratándose de actos de violencia intrafamiliar previstos en el artículo 489 bis del Código Civil para el Estado de Sonora.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER ARTICULO UNICO TRANSITORIO DEL DECRETO QUE MODIFICA EL CODIGO.
 (REFORMADO, B.O. 4 DE JUNIO DE 2009)
 El Juez, valorando la situación de la parte agredida y la posibilidad de peligro para la misma, determinará las órdenes de protección necesarias y las medidas procedentes para la protección de los menores y de la parte agredida. Al efecto, el Juez para normar su criterio, podrá tomar en cuenta, los informes que al respecto hayan sido elaborados por las instituciones públicas o privadas que hubieren intervenido y escuchará al Ministerio Público, así como a la Procuraduría de la Defensa del Menor y de la Familia.
 (ADICIONADO, B.O. 6 DE JULIO DE 2006)
