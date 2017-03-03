@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- La Secretaría de Educación y Cultura cuenta con 30 días naturales posteriores a la emisión del Reglamento de la presente Ley, para establecer y poner en funcionamiento el Sistema Integral para Erradicar el Ausentismo y la Deserción en la Educación Básica y Media Superior en el Estado de Sonora.
