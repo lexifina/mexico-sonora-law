@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 27 DE ABRIL DE 2017)
+Artículo 60 Bis.- Las instalaciones deportivas de cada uno de los municipios del estado de Sonora deberán contar con las adecuaciones arquitectónicas para la práctica del deporte adaptado que realizan las personas con discapacidad, debiendo contemplarse por los Municipios como por la Secretaría de Desarrollo Social del Estado de Sonora, por conducto de la Comisión del Deporte del Estado de Sonora, los presupuestos que se ejercerán cada año para dar cumplimiento a las adecuaciones que resulten necesarias.
