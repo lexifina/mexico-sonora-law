@@ -1,0 +1,8 @@
+B.O. 11 DE MAYO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 131, QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY DE FISCALIZACIÓN SUPERIOR PARA EL ESTADO DE SONORA Y DE LA LEY ORGÁNICA DEL PODER LEGISLATIVO DEL ESTADO DE SONORA".]
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor el día de su publicación en el Boletín Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- Los recursos materiales, humanos y financieros del Instituto Superior de Auditoría y Fiscalización, como órgano del Poder Legislativo, pasarán a formar parte del patrimonio del organismo público autónomo a que se refiere este Decreto.
+Para el ejercicio fiscal del año 2017, el Congreso del Estado realizará las previsiones correspondientes para garantizar los fondos suficientes para el adecuado desempeño de las atribuciones conferidas al Instituto Superior de Auditoría y Fiscalización.
+ARTÍCULO TERCERO.- El Congreso del Estado realizará las adecuaciones necesarias a su presupuesto para que el Centro de Investigaciones Parlamentarias cuente con los recursos suficientes para el cumplimiento de sus funciones.
+El Instituto Superior de Auditoría y Fiscalización transferirá al patrimonio del Congreso del Estado, los recursos materiales y humanos que a la fecha de entrada en vigor de este Decreto, se encuentren en uso del Centro de Investigaciones Parlamentarias.
+Asimismo, el Instituto Superior de Auditoría y Fiscalización transferirá al patrimonio del Congreso del Estado, lo que resta de los recursos económicos que tiene autorizado el Centro de Investigaciones Parlamentarias del Estado de Sonora para el presente ejercicio fiscal.
