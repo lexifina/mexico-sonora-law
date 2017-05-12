@@ -7,4 +7,4 @@ III.- Las penas de prisión que resulten de las fracciones I y II de este artíc
 a) Si el delito es cometido en contra de una persona menor de dieciocho años de edad;
 b) Si el delito es cometido en contra de una persona mayor de sesenta años de edad;
 c) Si el delito es cometido en contra de quien no tenga capacidad para comprender el significado del hecho; o
-d) Cuando el sujeto activo del delito tenga parentesco por consaguinidad, afinidad o civil, habite en el mismo domicilio con la víctima, tenga una relación similar al parentesco o una relación sentimental o de confianza con el sujeto pasivo.
+d) Cuando el sujeto activo del delito tenga parentesco por consaguinidad (sic), afinidad o civil, habite en el mismo domicilio con la víctima, tenga una relación similar al parentesco o una relación sentimental o de confianza con el sujeto pasivo.

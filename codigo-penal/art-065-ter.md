@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO PRIMER PÁRRAFO, B.O. 11 DE OCTUBRE DE 2012)
 ARTICULO 65 TER.- Cuando se trate del delito de lesiones culposas cometido en agravio de dos o más personas menores de seis o mayores de sesenta y cinco años, o en contra de personas que padezcan alguna discapacidad física o mental, que se encuentren en alguna guardería, estancia infantil, centro de desarrollo, jardín de niños, albergue, asilo, casa de apoyo o cualquier lugar o entidad pública, social o privada que se dedique a su cuidado, educación, guarda, custodia, protección, curación o rehabilitación, la sanción será de uno a ocho años de prisión y de cuarenta a trescientos días de multa. Si en el supuesto anterior alguna de las víctimas es privada de la vida, la sanción será de dos a veinte años de prisión.
 (ADICIONADO, B.O. 31 DE AGOSTO DE 2009)

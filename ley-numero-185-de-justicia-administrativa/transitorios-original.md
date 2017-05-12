@@ -1,4 +1,4 @@
-TRANSITORIO
+TRANSITORIOS
 ARTÍCULO PRIMERO.- La presente Ley entrará en vigor el al día siguiente du (sic) su publicación.
 ARTÍCULO SEGUNDO.- Se abroga la Ley Orgánica del Tribunal de lo Contencioso Administrativo, publicada en el Boletín Oficial del Gobierno del Estado de Sonora el 26 de enero de 1977 en el alcance número 8.
 ARTÍCULO TERCERO.- El Tribunal seguirá conociendo de los juicios y recursos que estuvieren en trámite en la fecha en que esta Ley entre en vigor, conforme al procedimiento contenido en el Titulo Sexto del Código Fiscal del Estado, el cual quedara derogado una vez que la sentencia que se dicte en el último juicio adquiera autoridad de cosa juzgada.
@@ -10,3 +10,4 @@ ARTÍCULO SEXTO.- En atención al artículo sexto transitorio de la Ley del Serv
 Comuníquese al Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado.- SALÓN DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 4 de diciembre de 2014.- C. JUAN MANUEL ARMENTA MONTAÑO, DIPUTADO PRESIDENTE.- C. JOSÉ L. VILLEGAS VÁSQUEZ, DIPUTADO SECRETARIO.- C. KARINA GARCÍA GUTIÉRREZ, DIPUTADA SECRETARIA.- RÚBRICAS.
 Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
 Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los cuatro días del mes de diciembre del año dos mil catorce.- SUFRAGIO EFECTIVO. NO REELECCIÓN. EL GOBERNADOR DEL ESTADO.- GUILLERMO PADRÉS ELÍAS.- EL SECRETARIO DE GOBIERNO.- LIC. ROBERTO ROMERO LÓPEZ.- RÚBRICAS.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

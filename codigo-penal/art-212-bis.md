@@ -11,6 +11,5 @@ Si el hostigador fuese servidor público, y utilizase los medios o circunstancia
 Solamente será punible el hostigamiento sexual, cuando se cause un perjuicio o daño.
 (ADICIONADO, B.O. 19 DE DICIEMBRE DE 2002)
 Este delito se perseguirá sólo a petición de parte ofendida.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO ÚNICO DEL DECRETO QUE MODIFICA LA LEY.
 (ADICIONADO, B.O. 4 DE JUNIO DE 2009)
 Si el delito se cometiera en contra de la víctima, por su condición de género, se aumentará la pena que corresponda hasta en una tercera parte.

@@ -1,3 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, B.O. 9 DE NOVIEMBRE DE 2015)
 ARTICULO 35 BIS.- La garantía económica que se constituya como medida cautelar, pasará al Fondo Estatal de Ayuda, Asistencia y Reparación Integral, cuando el imputado se sustraiga a la acción de los tribunales o no haga la reclamación conforme a lo establecido en el Código Nacional de Procedimientos Penales. En el primer caso, se conservará el importe de la garantía económica, hasta en tanto se resuelva lo relativo al pago de la reparación de daños.
