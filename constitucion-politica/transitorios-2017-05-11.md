@@ -1,0 +1,3 @@
+B.O. 11 DE MAYO DE 2017.
+[N. DE E. TRANSITORIO DE LA "LEY NÚMERO 181, QUE REFORMA LA FRACCIÓN III DEL ARTÍCULO 33 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SONORA".]
+ARTÍCULO ÚNICO.- En los términos del artículo 105 de la Constitución Política de los Estados Unidos Mexicanos, la presente ley entrará en vigor al momento de su publicación en el Boletín Oficial del Gobierno del Estado y una vez culminado el proceso electoral 2014-2015, previo cómputo que se realice de la aprobación o rechazo que emitan los ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente ley para los efectos dispuestos por el artículo 163 de la Constitución Política del Estado de Sonora.
