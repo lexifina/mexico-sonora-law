@@ -1,0 +1,5 @@
+B.O. 15 DE MAYO DE 2017.
+[N. DE E. TRANSITORIOS DE LA "LEY NÚMERO 187, QUE REFORMA Y ADICIONA DISPOSICIONES DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SONORA".]
+ARTÍCULO PRIMERO.- La presente Ley entrará en vigor el día de su publicación en el Boletín Oficial del Gobierno del Estado y previo cómputo que se realice de la aprobación o rechazo que emitan los ayuntamientos del Estado, a quienes se les deberá (sic) notificar los terminos de la presente Ley, para los efectos dispuestos por el artículo 163 de la Constitución Política del Estado de Sonora.
+Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que realicen el cómputo respectivo y la remitan al Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado, en caso de resultar aprobada.
+ARTÍCULO SEGUNDO.- Se derogan los artículos sexto y séptimo transitorios de la Ley número 173, que reforma, adiciona y deroga diversas disposiciones de la Constitución Política del Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado de Sonora número 49, sección III de fecha 19 de junio de 2014.
