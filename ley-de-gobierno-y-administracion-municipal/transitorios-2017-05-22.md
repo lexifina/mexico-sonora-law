@@ -1,0 +1,3 @@
+B.O. 22 DE MAYO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 141, QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES A LA LEY DE PLANEACIÓN DEL ESTADO DE SONORA Y A LA LEY DE GOBIERNO Y ADMINISTRACIÓN MUNICIPAL".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor el día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado.
