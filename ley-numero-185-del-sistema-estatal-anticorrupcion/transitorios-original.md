@@ -1,6 +1,8 @@
 TRANSITORIOS
 Artículo Primero.- La presente Ley entrará en vigor el día de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
 Artículo Segundo.- El Congreso del Estado deberá llevar a cabo a la entrada en vigor de la presente Ley, los procedimientos y diligencias necesarias para la integración de los órganos que conforman el Sistema Estatal Anticorrupción en los términos de la presente Ley, a más tardar el día 18 de julio de 2017.
+(ADICIONADO, B.O. 18 DE JULIO DE 2017)
+Sin perjuicio de lo establecido en el párrafo anterior, la Comisión de Selección a que hace alusión el artículo 18 de la presente Ley, deberá realizar los nombramientos de los integrantes del Comité de Participación Ciudadana, a más tardar, el día 31 de diciembre de 2017.
 Artículo Tercero.- El titular del Poder Ejecutivo y el Congreso del Estado, a la brevedad que el caso amerita, realizaran las adecuaciones presupuestales que resulten necesarias a fin de dotar de los recursos materiales y financieros que permitan el cumplimiento de las atribuciones de los Órganos integrantes del Sistema Estatal Anticorrupción.
 Artículo Cuarto.- Con el propósito de cumplir con lo establecido en el artículo 18 de esta Ley, se atenderá lo siguiente:
 El Congreso del Estado será el encargado del proceso de selección para lo cual deberá:
@@ -22,3 +24,4 @@ Los integrantes del Comité de Participación Ciudadana a que se refieren los in
 Comuníquese a la Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado.- SALÓN DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 24 de abril de 2017. C. MOISÉS GÓMEZ REYNA, DIPUTADO PRESIDENTE.- RÚBRICA- C. FERMÍN TRUJILLO FUENTES, DIPUTADO SECRETARIO.- RÚBRICA- C. JOSÉ ANGEL ROCHÍN LÓPEZ, DIPUTADO SECRETARIO. RÚBRICA.
 Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
 Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los veintiséis días del mes de abril del año dos mil diecisiete.- SUFRAGIO EFECTIVO, NO REELECCIÓN. GOBERNADORA DEL ESTADO.- CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- MIGUEL ERNESTO POMPA CORELLA- RÚBRICA
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
