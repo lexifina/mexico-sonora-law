@@ -2,3 +2,4 @@ ARTÍCULO ÚNICO.- La presente Ley entrará en vigor al día siguiente de su pub
 Comuníquese al Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado.- SUFRAGIO EFECTIVO, NO REELECCIÓN. Hermosillo, Sonora, 06 de noviembre de 2014.- C. LUIS ALEJANDRO GARCÍA ROSAS, DIPUTADO PRESIDENTE.- C. CARLOS E. NAVARRO LÓPEZ, DIPUTADO SECRETARIO.- C. JOSÉ L. VILLEGAS VÁSQUEZ, DIPUTADO SECRETARIO.- RÚBRICAS.
 Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
 Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los veinticinco días del mes de noviembre del año dos mil catorce.- SUFRAGIO EFECTIVO. NO REELECCIÓN. EL GOBERNADOR DEL ESTADO.- GUILLERMO PADRÉS ELÍAS.- EL SECRETARIO DE GOBIERNO.- LIC. ROBERTO ROMERO LÓPEZ.- RÚBRICAS.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

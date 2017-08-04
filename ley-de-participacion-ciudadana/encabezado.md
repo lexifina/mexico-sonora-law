@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY PARTICIPACIÓN CIUDADANA DEL ESTADO DE SONORA
 Ley publicada en la Edición Especial Número 6 del Boletín Oficial del Estado de Sonora, el viernes 1 de julio de 2011.
 GUILLERMO PADRES ELIAS, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:

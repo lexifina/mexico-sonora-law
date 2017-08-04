@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, B.O. 20 DE OCTUBRE DE 2005)
-ARTÍCULO 200 BIS.- Se impondrán de tres a ocho años de prisión y de cuarenta a mil días multa, al que sin consentimiento de quien esté facultado para ello:
+(REFORMADO PRIMER PÁRRAFO, B.O. 3 DE AGOSTO DE 2017)
+ARTICULO 200 BIS.- Se impondrán de tres a ocho años de prisión y multa de cuarenta a mil Unidades de Medida y Actualización, al que sin consentimiento de quien esté facultado para ello:
 (ADICIONADA, B.O. 19 DE DICIEMBRE DE 2002)
 I.- Fabrique, produzca, imprima, comercie, suministre, aun gratuitamente, tarjetas, esqueletos de cheques o documentos que se utilicen para el pago de bienes y servicios o disposición de efectivo.
 (ADICIONADA, B.O. 19 DE DICIEMBRE DE 2002)

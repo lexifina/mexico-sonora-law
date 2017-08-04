@@ -25,7 +25,7 @@ U).- Hotel o motel.
 V).- Centro recreativo o deportivo.
 W).- Abarrotes.
 Deberá considerarse el caso de expedición de anuencias municipales por cambio de domicilio.
-Il.- Para la expedición de autorizaciones eventuales, por día, si se trata de:
+l.- Para la expedición de autorizaciones eventuales, por día, si se trata de:
 A).- Fiestas sociales o familiares,
 B).- Kermés.
 C).- Bailes, graduaciones, bailes tradicionales.

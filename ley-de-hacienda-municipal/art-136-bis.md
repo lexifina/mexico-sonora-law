@@ -28,9 +28,11 @@ C) Por peritajes en la revisión de incendios en inmuebles y la valorización de
 3.- Comercios;
 4.- Almacenes y bodegas; y
 5.- Industrias.
-Por el concepto mencionado en el inciso C) y por todos los apartados que la componen, el número de veces que se señala como salario mínimo general, se cubrirá por cada $1000.00 (Mil pesos 00/100 m.n.) de la suma asegurada.
+(REFORMADO, B.O. 3 DE AGOSTO DE 2017)
+Por el concepto mencionado en el inciso C), y por todos los apartados que la componen, el número de veces que se señala como Unidad de Medida y Actualización, se cubrirá por cada $ 1000.00 (Mil pesos 00/100 m.n.) de la suma asegurada.
 D) Por servicios especiales de cobertura de seguridad:
-Por el concepto mencionado en el inciso D), los salarios mínimos generales que se mencionan como pago de los servicios, comprende una unidad bombera y cinco elementos, adicionándose un salario mínimo general al establecido por cada bombero adicional.
+(REFORMADO, B.O. 3 DE AGOSTO DE 2017)
+Por el concepto mencionado en el inciso D), las Unidades de Medida y Actualización que se mencionan como pago de los servicios, comprende una unidad bombera y cinco elementos, adicionándose una Unidad de Medida y Actualización al establecido por cada bombero adicional.
 E) Por la instrucción a personal de seguridad y trabajadores por un tiempo mínimo de 4 horas por:
 1.- 10 Personas;
 2.- 20 Personas; y

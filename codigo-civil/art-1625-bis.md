@@ -1,7 +1,7 @@
 (REFORMADO PRIMER PARRAFO, B.O. 4 DE ENERO DE 1996)
 Art. 1625 BIS.- Testamento público simplificado es aquél que se otorga ante notario respecto de un inmueble destinado o que vaya a destinarse a vivienda para el adquiriente en la misma escritura que consigne su adquisición o el que se otorgue en el mismo documento en que conste su adquisición proveniente de enajenaciones realizadas con Dependencias o entidades de la Administración Pública Estatal o Federal o en acto posterior, de conformidad con lo siguiente:
-(ADICIONADA, B.O. 6 DE JULIO DE 1995)
-I.- Que el precio del inmueble o su valor de avalúo catastral no exceda del equivalente a veinticinco veces el salario mínimo general vigente en la zona económica del lugar de su ubicación, elevado al año, al momento de la adquisición;
+(REFORMADA, B.O. 3 DE AGOSTO DE 2017)
+I.- Que el precio del inmueble o su valor de avalúo catastral no exceda del equivalente a veinticinco Unidades de Medida y Actualización, elevado al año, al momento de la adquisición;
 (ADICIONADA, B.O. 6 DE JULIO DE 1995)
 II.- El testador instituirá uno o más legatarios con derecho de acrecer, salvo designación de sustitutos. Para el caso de que cuando se llevare a cabo la protocolización notarial de la adquisición en favor de los legatarios, éstos fueren incapaces y no estuvieren sujetos a patria potestad o tutela, el testador también podrá designarles un representante especial que firme el instrumento notarial correspondiente por los incapaces, e imprimirán su huella digital;
 (ADICIONADA, B.O. 6 DE JULIO DE 1995)
