@@ -1,0 +1,9 @@
+B.O. 3 DE AGOSTO DE 2017.
+[N. DE E. TRANSITORIO DE LA "LEY NÚMERO 192 DE PROTECCIÓN DE DATOS PERSONALES EN POSESIÓN DE SUJETOS OBLIGADOS DEL ESTADO DE SONORA".]
+ARTÍCULO PRIMERO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO SEGUNDO.- Se derogan el Título Segundo, Capítulo Segundo, Secciones Cuarta, Quinta y Sexta, relativos a la Protección de datos Personales, De Los Derechos en Materia de Datos Personales y de los procedimientos para el Ejercicio de los Derechos en Materia de Datos Personales, de la Ley de Acceso a la Información Pública y de Protección de Datos Personales del Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado número 16, sección II, de fecha 25 de febrero de 2005.
+ARTÍCULO TERCERO.- Los responsables expedirán sus avisos de privacidad en los términos previstos en la presente Ley y demás disposiciones aplicables, a más tardar tres meses después de la entrada en vigor de ésta.
+ARTÍCULO CUARTO.- Los responsables deberán observar lo dispuesto en el Título Segundo, Capítulo II de la presente Ley, a más tardar un año después de la entrada en vigor de ésta.
+ARTÍCULO QUINTO.- El Instituto deberá expedir los lineamientos, parámetros, criterios y demás disposiciones de las diversas materias a que se refiere la presente Ley, dentro de un año siguiente a la entrada en vigor de ésta.
+ARTÍCULO SEXTO.- Los procedimientos iniciados con anterioridad a la vigencia de esta Ley, se sustanciarán hasta su conclusión de acuerdo al procedimiento que resulte aplicable.
+ARTÍCULO SÉPTIMO.- El Congreso del Estado de Sonora deberá hacer las previsiones presupuestales necesarias para la operación de la presente Ley y establecer las partidas presupuestales específicas en el Presupuesto de Egresos de Estado de Sonora para el siguiente ejercicio fiscal a su entrada en vigor.
