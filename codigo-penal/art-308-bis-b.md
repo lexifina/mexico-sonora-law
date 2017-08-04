@@ -1,0 +1,2 @@
+(REFORMADO, B.O. 3 DE AGOSTO DE 2017)
+ARTICULO 308 BIS-B.- Se sancionará con prisión de un mes a nueve años y de uno hasta doscientos cincuenta días multa, al que sin tomar las medidas indispensables para cerciorarse de su procedencia legítima, compre, venda o comercialice materiales reciclables robados, o bienes muebles destinados a los planteles educativos e instituciones de educación básica, media superior o superior, a que se refiere el artículo 308 BIS-C.
