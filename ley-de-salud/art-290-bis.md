@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 7 DE JULIO DE 2003)
-ARTICULO 290 BIS.- Se sancionará con multa equivalente de doscientas a quinientas veces el salario mínimo general diario vigente en la zona económica de que se trate, la violación a lo dispuesto por el artículo 242 Bis de esta Ley.
+(REFORMADO, B.O. 3 DE AGOSTO DE 2017)
+ARTICULO 290 BIS.- Se sancionará con multa equivalente de doscientos (sic) a quinientas Unidades de Medida y Actualización, la violación a lo dispuesto por el artículo 242 bis de esta Ley.
