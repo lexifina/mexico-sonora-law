@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Por el sólo transcurso del tiempo a que se refiere esta Ley, los poderes del Estado volverán a tener su residencia oficial, inmediata y sin necesidad de declaración previa alguna, en la ciudad de Hermosillo, Sonora, en términos de lo dispuesto por el artículo 28 de la Constitución Política del Estado de Sonora.
