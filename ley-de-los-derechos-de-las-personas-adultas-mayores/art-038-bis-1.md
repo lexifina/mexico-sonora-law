@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 6 DE NOVIEMBRE DE 2017)
+ARTÍCULO 38 BIS 1.- La Secretaría de Desarrollo Social asesorada por un comité integrado por cinco ciudadanos especialistas en temas de asistencia a adultos mayores, los cuales serán designados por el titular de dicha dependencia, elaborarán las reglas de operación del programa de otorgamiento de apoyos económicos a adultos mayores al cuidado de sus nietos de hasta seis años de edad.
+El comité supervisará el otorgamiento de los apoyos económicos por la Secretaría de Desarrollo Social y rendirá un informe anual sobre sus actividades durante los primeros quince días del mes de febrero de cada año.

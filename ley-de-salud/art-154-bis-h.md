@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 6 DE NOVIEMBRE DE 2017)
+ARTÍCULO 154 BIS H.- La Secretaría de Salud Pública deberá proporcionar los servicios médicos que sean necesarios a las personas a quienes se les haya realizado trasplante y que le señale el Centro Estatal de Trasplantes, para garantizar, en la medida de lo posible, la adecuada recepción y funcionamiento del órgano trasplantado, debiendo informar al Director General del Centro Estatal de Trasplantes, de las acciones que realice y los profesionales que estén a cargo de proporcionar los servicios a los que se refiere este artículo.

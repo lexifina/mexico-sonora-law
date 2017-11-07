@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO OCTAVO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, B.O. 21 DE OCTUBRE DE 2016)
 Artículo 144 Bis C.- En caso de que durante el ejercicio fiscal disminuyan los ingresos previstos para el Municipio en la Ley de Ingresos de que se trate, el Presidente Municipal, a efecto de cumplir con el principio de sostenibilidad del Balance Presupuestario y del Balance Presupuestario de Recursos Disponibles, deberá aplicar ajustes al presupuesto de egresos en los rubros de gasto en el siguiente orden:
 I.- Gastos de comunicación social;

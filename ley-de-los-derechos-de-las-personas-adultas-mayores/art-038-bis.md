@@ -1,0 +1,4 @@
+(ADICIONADO, B.O. 6 DE NOVIEMBRE DE 2017)
+ARTÍCULO 38 BIS.- Los adultos mayores que proporcionen atención y cuidado a sus menores nietos de hasta seis años de edad con motivo del empleo de sus padres, podrán recibir un apoyo económico conforme a lo establecido en el presupuesto de egresos del Gobierno del Estado.
+En el supuesto de que los nietos al cuidado de los adultos mayores con motivo del empleo de sus padres, padezcan de alguna discapacidad que les impida desplazarse por sí mismos, el apoyo económico será entregado sin importar la edad de los nietos.
+Los particulares podrán efectuar aportaciones a la Secretaría de Desarrollo Social destinadas al otorgamiento del apoyo económico en cuestión, con el objeto de aumentar su monto o el número de beneficiarios, las cuales en ningún momento sustituirán a las partidas establecidas para el particular en el presupuesto de egresos del Gobierno del Estado.

@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO OCTAVO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, B.O. 21 DE OCTUBRE DE 2016)
 Artículo 144 Bis E.- Una vez aprobado el presupuesto de egresos, para el ejercicio del gasto, el Municipio deberá observar las disposiciones siguientes:
 I.- Sólo podrá comprometer recursos con cargo al presupuesto autorizado, contando previamente con la suficiencia presupuestaria, identificando la fuente de ingresos;

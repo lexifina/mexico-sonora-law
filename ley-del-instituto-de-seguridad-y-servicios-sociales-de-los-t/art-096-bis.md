@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 6 DE NOVIEMBRE DE 2017)
+Artículo 96 Bis.- Para el Instituto, será obligatoria la atención de las mujeres embarazadas que presenten urgencia obstétrica, solicitada de manera directa o a través de la referencia de otra unidad médica, en las unidades con capacidad para la atención de urgencias obstétricas, independientemente de su derechohabiencia o afiliación a cualquier esquema de aseguramiento.

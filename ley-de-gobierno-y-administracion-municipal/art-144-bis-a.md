@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO OCTAVO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, B.O. 21 DE OCTUBRE DE 2016)
 Artículo 144 Bis A.- En materia de servicios personales, el presupuesto de egresos municipal deberá cumplir con los siguientes lineamientos. En todo caso, en la elaboración y posterior aprobación del presupuesto de egresos se observará lo siguiente:
 I.- La asignación global de recursos para servicios personales que se apruebe en el presupuesto de egresos, tendrá como límite, el producto que resulte de aplicar al monto aprobado en el presupuesto de egresos del ejercicio inmediato anterior, una tasa de crecimiento equivalente al valor que resulte menor entre:
