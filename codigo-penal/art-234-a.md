@@ -4,8 +4,8 @@ ARTICULO 234-A.- Por violencia intrafamiliar se entiende todo acto de poder u om
 Comete el delito de violencia intrafamiliar el cónyuge, excónyuge, concubina o concubino, pariente consanguíneo en línea recta ascendente o descendente sin limitación de grado, pariente colateral consanguíneo o afín hasta el cuarto grado, adoptante o adoptado, tutor o curador que realice cualquiera de los actos descritos en el párrafo anterior.
 (ADICIONADO, B.O., 17 DE MAYO DE 2001)
 Al que cometa el delito de violencia intrafamiliar se le impondrán de seis meses a seis años de prisión y la suspensión del derecho de alimentos.
-(REFORMADO, B.O. 4 DE JUNIO DE 2009)
-Asimismo, cuando la víctima se trate de un menor, será condenado a la perdida, limitación o suspensión de la patria potestad, según las circunstancias del caso, a juicio del juez. Si el delito se cometiera en contra de la víctima, por su condición de género, se aumentará la pena que corresponda hasta en una tercera parte.
+(REFORMADO, B.O. 27 DE NOVIEMBRE DE 2017)
+Asimismo, cuando la víctima se trate de un menor, será condenado a la pérdida, limitación o suspensión de la patria potestad, según las circunstancias del caso, a juicio del juez. Si el delito se cometiera en contra de la víctima, por su condición de género, o en contra de un adulto mayor, se aumentará la pena que corresponda hasta en una tercera parte.
 (ADICIONADO, B.O., 17 DE MAYO DE 2001)
 En todo caso, el victimario deberá sujetarse a un tratamiento psicológico especializado como una medida para buscar su rehabilitación.
 (ADICIONADO, B.O., 17 DE MAYO DE 2001)
