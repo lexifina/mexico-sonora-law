@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- Las normas de la presente Ley que se refieren al organismo que estará encargado de llevar el procedimiento para el otorgamiento de los incentivos no fiscales a los inversionistas y empresarios entrarán en vigor a partir de la vigencia del Decreto mediante el cual el Ejecutivo Estatal cree (sic) la entidad paraestatal mencionada en el artículo siguiente.

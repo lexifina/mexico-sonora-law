@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO. El Ejecutivo del Estado, dentro de un plazo de treinta días a partir de la expedición del Decreto a que se refiere el artículo transitorio Cuarto, constituirá los Fondos a que se refiere el artículo 6º y 7º de la presente Ley, los cuales sustituirán a los existentes a que refiere la Ley que se abroga.

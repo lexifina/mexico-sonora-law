@@ -1,0 +1,4 @@
+ARTÍCULO DÉCIMO.- Se derogan todas las disposiciones que se opongan a la presente Ley.
+Comuníquese a la Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado.- SALÓN DE SESIONES DEL H. CONGRESO DE ESTADO. Hermosillo, Sonora, 01 de noviembre de 2017. C. KARMEN AIDA DÍAZ BROWN OJEDA, DIPUTADA PRESIDENTA.- RÚBRICA. C. TERESA MARÍA OLIVARES OCHOA, DIPUTADA SECRETARIA.- RÚBRICA.- C. ANA M. LUISA VALDÉS AVILÉS, DIPUTADA SECRETARIA.- RÚBRICA.
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, al primer día del mes de noviembre del año dos mil diecisiete.- GOBERNADORA DEL ESTADO.- CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- MIGUEL ERNESTO POMPA CORELLA.- RÚBRICA.

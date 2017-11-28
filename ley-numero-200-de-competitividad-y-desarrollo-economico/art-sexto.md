@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO.- El nuevo organismo a que se refiere el artículo transitorio Cuarto se subrogará en los derechos y obligaciones que correspondan al Consejo para la Promoción Económica de Sonora y a la Comisión para el Desarrollo Económico del Estado, derivados de los convenios, contratos y demás actos jurídicos que éste hubiese celebrado.

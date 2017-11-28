@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO.- Las menciones al Consejo para la Promoción Económica de Sonora y a la Comisión para el Desarrollo Económico del Estado que se contengan en otras disposiciones legales y reglamentarias se entenderán referidas, en su caso, al nuevo organismo a que se refiere el artículo transitorio Cuarto.

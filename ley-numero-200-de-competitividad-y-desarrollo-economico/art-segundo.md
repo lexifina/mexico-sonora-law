@@ -1,0 +1,2 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Fomento al Desarrollo Económico para el Estado de Sonora, publicada el 19 de diciembre de 2002 en el Boletín Oficial del Gobierno del Estado.
+Las normas relativas al Consejo para la Promoción Económica de Sonora y a la Comisión para el Desarrollo Económico del Estado seguirán vigentes hasta la creación por el Ejecutivo del Estado de la Entidad Paraestatal a que se refiere el artículo transitorio Cuarto, y hasta entonces se extinguirán y concluirán las funciones de aquéllos.
