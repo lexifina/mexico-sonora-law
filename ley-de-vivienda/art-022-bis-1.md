@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 26 DE DICIEMBRE DE 2017)
+Artículo 22 Bis 1.- Cuando los propietarios o poseedores de las viviendas a las que se hace referencia en el artículo anterior no efectúen la limpieza y conservación en los términos del artículo anterior, la autoridad competente, realizará los trabajos y cobrará las cuotas que establezca esta la (sic) Ley de Ingresos y Presupuesto de Ingresos vigente, sin perjuicio de la aplicación de la sanción correspondiente.
