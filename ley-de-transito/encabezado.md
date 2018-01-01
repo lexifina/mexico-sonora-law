@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE TRÁNSITO DEL ESTADO DE SONORA
 Ley publicada en el Boletín Oficial del Estado de Sonora, el lunes 27 de febrero de 1984.
 EL C. DR. SAMUEL OCAÑA GARCIA, Gobernador Constitucional del Estado Libre y Soberano de Sonora, a sus habitantes, sabed:
