@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 9 DE ABRIL DE 2018)
+ARTICULO 258 BIS 2.- Cuando el sujeto activo del delito señalado en el presente capítulo sea o hubiera sido servidor público de las Instituciones de Seguridad Pública, se le impondrá hasta una mitad más de la pena correspondiente, además de la destitución del cargo y la inhabilitación para desempeñarse como servidor público en el Gobierno Estatal y en los Ayuntamientos de la Entidad, por el doble del tiempo al de la pena de prisión impuesta.
