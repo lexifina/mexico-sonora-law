@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 22 DE DICIEMBRE DE 1983)
-Artículo 25 A. El Gobierno del Estado está obligado a promover, orientar y conducir el desarrollo económico, social, político y cultural de la población de la Entidad, mediante el fomento del crecimiento económico, del empleo y una más justa distribución del ingreso y la riqueza con la más amplia participación de la sociedad.
+(REFORMADO, B.O. 26 DE ABRIL DE 2018)
+Artículo 25-A. El Gobierno del Estado está obligado a promover, orientar y conducir el desarrollo económico, social, sustentable, político y cultural de la población de la Entidad, mediante el fomento del crecimiento económico, del empleo y una más justa distribución del ingreso y la riqueza con la más amplia participación de la sociedad.
