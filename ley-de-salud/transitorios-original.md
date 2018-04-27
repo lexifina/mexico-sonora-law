@@ -1,21 +1,20 @@
 TRANSITORIOS
-ARTICULO PRIMERO.- La presente ley entrará en vigor tres días después de su publicación en el Boletín Oficial del Gobierno del Estado.
-ARTICULO SEGUNDO.- Se abroga la Ley Número 67 de Salud para el Estado de Sonora, publicada en el alcance al número 18 del Boletín Oficial del Gobierno del Estado de Sonora, de fecha 30 de agosto de 1984, Tomo CXXXIV, y sus reformas y adiciones, así como todas las disposiciones que se opongan a la presente ley.
-ARTICULO TERCERO.- Todos los actos, procedimientos y recursos administrativos relacionados con esta ley, que se hubieren iniciado bajo la vigencia de la Ley Número 67 de Salud para el Estado de Sonora que se abroga, se tramitarán y resolverán conforme a las disposiciones de la citada ley.
-ARTICULO CUARTO.- Las autorizaciones que se hubieren expedido con anterioridad a la fecha de entrada en vigor de la presente Ley, seguirán válidas hasta su vencimiento. Las nuevas autorizaciones se otorgarán en los términos de la presente Ley.
-Comuníquese al Ejecutivo para su sanción y promulgación.
-SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.
-Hermosillo, Sonora, a 12 de Mayo de 1992.
-"1992 AÑO DE LA UNIVERSIDAD DE SONORA"
-PROFR. RICARDO IBARRA GARCIA.
-DIPUTADO PRESIDENTE.
-PROFRA. MARTHA SILVIA GRIJALVA SINOHUI.
-DIPUTADO SECRETARIO.
-LADISLAO RAMIREZ MERCADO.
-DIPUTADO SECRETARIO.
-POR LO TANTO, mando se publique en el Boletín Oficial del Estado y se le dé el debido cumplimiento.
-PALACIO DE GOBIERNO, Hermosillo, Sonora, Junio dos de mil novecientos noventa y dos.
-LIC. MANLIO FABIO BELTRONES RIVERA
-EL SECRETARIO DE GOBIERNO
-LIC. ROBERTO SANCHEZ CEREZO
-N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se abroga la Ley de Transparencia y Acceso a la Información Pública del Estado de Puebla, publicada en el Periódico Oficial del Estado el 31 de diciembre de 2011.
+TERCERO. Queda derogada cualquier disposición que contravenga los principios, bases, procedimientos y derechos reconocidos en la presente Ley, sin perjuicio de lo previsto en los siguientes Transitorios.
+CUARTO. Los empleados que laboren a la fecha al servicio de la Comisión para el Acceso a la Información Pública y Protección de Datos Personales del Estado, se incorporarán al Instituto de Transparencia, Acceso a la Información Pública y Protección de Datos Personales del Estado de Puebla, en los términos de la presente Ley, respetando su antigüedad, así como los derechos adquiridos de los que disfrutan.
+QUINTO. El Instituto de Transparencia expedirá las reformas necesarias a su Reglamento para el ejercicio de sus atribuciones, de conformidad con lo previsto en la presente Ley, dentro de los seis meses siguientes a la entrada en vigor del presente Decreto.
+SEXTO. Los integrantes de las Unidades Administrativas de Acceso a la Información conformarán las Unidades de Transparencia a las que se refiere la presente Ley, hasta que se haga la nueva designación del Titular de la Unidad de Transparencia en los términos de esta Ley.
+SÉPTIMO. Las solicitudes de acceso y los recursos de revisión que se encuentren en trámite al día anterior de la entrada en vigor de la presente Ley, se substanciarán en los términos y plazos contemplados en la legislación anterior.
+Las solicitudes de acceso y recursos de revisión presentados el día de la entrada en vigor de la presente Ley, serán resueltos de acuerdo a los plazos y procedimientos previstos en la misma.
+OCTAVO. Los sujetos obligados se incorporarán a la Plataforma Nacional de Transparencia, en los términos que establezcan los lineamientos que realice el Sistema Nacional para su implementación.
+NOVENO. Los sujetos obligados cuentan con un plazo de seis meses, a partir de la entrada en vigor de la presente Ley, para cumplir con las obligaciones de transparencia referidas en el Título Quinto de la presente Ley. Lo anterior siempre y cuando no exista disposición en contrario emitida por el Sistema Nacional.
+Las nuevas obligaciones establecidas en la presente Ley no contempladas en la Ley anterior, serán aplicables respecto de la información generada desde la entrada en vigor de la Ley General; es decir, desde el 5 de mayo de 2015.
+DÉCIMO. En tanto el Sistema Nacional emite los lineamientos, mecanismos y criterios correspondientes para determinar las acciones a tomar, los municipios con población menor a 70,000 habitantes cumplirán con las obligaciones de transparencia de conformidad con sus posibilidades presupuestarias.
+Dichos municipios podrán solicitar al Instituto de Transparencia que, de manera subsidiaria, divulgue vía internet las obligaciones de transparencia correspondientes.
+DÉCIMO PRIMERO. Los sujetos obligados contarán con el plazo de un año contado a partir de la entrada en vigor de la presente Ley para expedir su Reglamento respectivo.
+DÉCIMO SEGUNDO. El Instituto de Transparencia contará con el plazo de seis meses a partir de la entrada en vigor de la presente Ley para nombrar a los integrantes del Consejo Consultivo.
+DÉCIMO TERCERO. Las referencias que en esta Ley se atribuyen al Instituto de Transparencia, Acceso a la Información Pública y Protección de Datos Personales del Estado de Puebla, se entenderán hechas a la actual Comisión para el Acceso a la Información Pública y Protección de Datos Personales del Estado, en tanto se realizan las modificaciones respecto de la denominación del organismo garante estatal en materia de transparencia.
+El GOBERNADOR hará publicar y cumplir la presente disposición. Dada en el Palacio del Poder Legislativo en la Cuatro Veces Heroica Puebla de Zaragoza, a los cuatro días del mes de mayo de dos mil dieciséis. Diputado Presidente. CARLOS MARTÍNEZ AMADOR. Rúbrica. Diputada Vicepresidenta. PATRICIA LEAL ISLAS. Rúbrica. Diputada Secretaria. MAIELLA MARTHA GABRIELA GÓMEZ MALDONADO. Rúbrica. Diputada Secretaria. MARÍA SARA CAMELIA CHILACA MARTÍNEZ. Rúbrica.
+Por lo tanto mando se imprima, publique y circule para sus efectos. Dado en el Palacio del Poder Ejecutivo, en la Cuatro Veces Heroica Puebla de Zaragoza, a los cuatro días del mes de mayo de dos mil dieciséis. El Gobernador Constitucional del Estado. C. RAFAEL MORENO VALLE ROSAS. Rúbrica. El Secretario General de Gobierno. C. DIÓDORO HUMBERTO CARRASCO ALTAMIRANO. Rúbrica. El Secretario de Finanzas y Administración. C. GUILLERMO EDMUNDO BERNAL MIRANDA. Rúbrica. El Secretario de la Contraloría. C. ALEJANDRO TORRES PALMER. Rúbrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

@@ -1,2 +1,0 @@
-(ADICIONADO, B.O. 6 DE NOVIEMBRE DE 2017)
-ARTICULO 50 BIS 1.- Los servicios de salud a que hace referencia el artículo 50 Bis de la presente Ley, prestarán atención expedita a las mujeres embarazadas que presenten una urgencia obstétrica, solicitada de manera directa o a través de la referencia de otra unidad médica, en las unidades con capacidad para la atención de urgencia (sic) obstétricas, independientemente de su derechohabiencia o afiliación a cualquier esquema de aseguramiento.

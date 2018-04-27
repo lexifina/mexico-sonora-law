@@ -1,2 +1,0 @@
-(ADICIONADO, B.O. 27 DE JUNIO DE 2013)
-ARTICULO 142 BIS 3.- Se entiende por ludopatía el trastorno del comportamiento, entendiéndose éste como expresión de la psicología del individuo, consistente en la pérdida de control en relación con un juego de apuestas o más, tanto si incide en las dificultades que supone para el individuo dejar de jugar cuando está apostando, como en mantenerse sin apostar definitivamente en el juego, distorsionándose de esta manera el pensamiento, las emociones y la comunicación con las personas que lo rodean.
