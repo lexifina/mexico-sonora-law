@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- El Coordinador Estatal y la Junta Directiva tendrán un plazo que no excederá de noventa días hábiles contados a partir de la fecha en que se hubiere integrado esta última, para elaborar y aprobar, respectivamente, el Reglamento Interior de la Coordinación Estatal de Protección Civil.

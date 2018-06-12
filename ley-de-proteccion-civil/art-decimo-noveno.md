@@ -1,0 +1,5 @@
+ARTÍCULO DÉCIMO NOVENO.- En materia de Protección Civil, los Centros de Desarrollo Integral Infantil, estarán a lo dispuesto en la Ley "5 de Junio" que Regula la Prestación de Servicios para la Atención, Cuidado y Desarrollo Integral Infantil en el Estado de Sonora.
+ARTÍCULO VIGÉSIMO.- Se derogan todas las disposiciones que se opongan a la presente Ley.
+Comuníquese a la Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado.- SALÓN DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 18 de abril de 2018. C. JAVIER VILLARREAL GÁMEZ, DIPUTADO PRESIDENTE.- RÚBRICA.- C. JOSÉ A. GUTIÉRREZ JIMÉNEZ, DIPUTADO SECRETARIO.- RÚBRICA. C. ENRIQUE EVANGELISTA VELÁZQUEZ, DIPUTADO SECRETARIO.- RUBRICA.-
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los once días del mes de junio del año dos mil dieciocho.- GOBERNADORA DEL ESTADO. CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- MIGUEL ERNESTO POMPA CORELLA.- RÚBRICA.

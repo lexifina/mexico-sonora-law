@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO SÉPTIMO.- Los ayuntamientos del Estado, contarán con un plazo de ciento veinte días naturales contado a partir de la entrada en vigor de la presente Ley para emitir las disposiciones reglamentarias correspondientes e instalar los Consejos Municipales de Protección Civil.

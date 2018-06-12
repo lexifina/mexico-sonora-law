@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO OCTAVO.- La Coordinación Estatal de Protección Civil no podrá iniciar funciones hasta que la Secretaria de la Contraloría General designe a él o los organismos de Control y Vigilancia correspondientes, conforme lo establece la Ley Orgánica del Poder Ejecutivo del Estado de Sonora.

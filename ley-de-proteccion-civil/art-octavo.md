@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO.- El Coordinador Estatal de la Coordinación Estatal de Protección Civil deberá solicitar a la Secretaría de Hacienda, dentro de los treinta días siguientes a la fecha de constitución de este organismo, la inscripción del mismo en el Registro de la Administración Pública Paraestatal.

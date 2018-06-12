@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO.- Los trámites y servicios que se encuentren en revisión o pendientes de resolución ante la Unidad Estatal de Protección Civil le serán aplicables las disposiciones de la Ley de Protección Civil para el Estado de Sonora abrogada y el correspondiente Reglamento.

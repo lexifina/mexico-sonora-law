@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Protección Civil para el Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado número 27, sección II, de fecha 03 de octubre de 2005 y sus reformas.

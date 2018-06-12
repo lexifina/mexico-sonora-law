@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO CUARTO.- Los recursos financieros, humanos, materiales, administrativos y tecnológicos que actualmente integran la totalidad de los recursos de la Unidad Estatal de Protección Civil, a partir de la entrada en vigor de la presente Ley, serán asignados como recursos para la Coordinación Estatal de Protección Civil.

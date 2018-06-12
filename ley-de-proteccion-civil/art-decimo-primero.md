@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO PRIMERO.- La Coordinación Estatal de Protección Civil, en un término de noventa días naturales, deberá celebrar los convenios necesarios para dar cumplimiento a lo establecido en el artículo 75 de la Ley.
