@@ -1,0 +1,2 @@
+(ADICIONADO, B. O. 25 DE JUNIO DE 2018)
+ARTÍCULO 143 BIS 3.- La Comisión de Ecología y Desarrollo Sustentable del Estado de Sonora, deberá crear un Registro Estatal de Fabricantes y Distribuidores de bolsas biodegradables en el que deberán inscribirse todas las personas físicas y morales que fabriquen o comercialicen dichas bolsas, quienes deberán contar, con un certificado anual de degradabilidad o biodegradabilidad de sus productos, expedida o avalada por la Comisión de Ecología y Desarrollo Sustentable del Estado de Sonora.

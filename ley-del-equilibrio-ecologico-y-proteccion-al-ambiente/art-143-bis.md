@@ -1,0 +1,6 @@
+(ADICIONADO, B. O. 25 DE JUNIO DE 2018)
+ARTÍCULO 143 BIS.- A fin de proteger el medio ambiente en el Estado, las personas físicas o morales que otorguen bolsas de plástico a título gratuito, de manera onerosa o por cualquier acto comercial, para la transportación, carga o traslado de productos vendidos, deberán garantizar:
+I.- Que en su composición cuenten al menos con 10% de plástico reciclado. Quedando exentos empaques, embalajes, bolsas primarias y bolsas utilizadas para alimentos frescos;
+II.- Que las bolsas de plástico tengan impreso logotipo o identificación de reciclado considerando el código correspondiente;
+III.- Que cuando el establecimiento opte por otorgar bolsas elaboradas con material biodegradable, o que contengan aditivos que aceleran su proceso de degradación, deberán contar con un distintivo que especifique el tipo de aditivo integrado en el proceso de producción de la bolsa, así mismo, contar con evidencia de que los residuos resultantes del proceso de degradación de las bolsas de plástico con aditivo degradante no tienen características de toxicidad.
+Las especificaciones o características de las evidencias que garanticen el cumplimiento del presente artículo serán establecidas en el reglamento correspondiente de esta Ley.
