@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 12 DE JULIO DE 2018)
+ARTÍCULO 103 BIS.- Para efectos del segundo párrafo del artículo anterior, en caso de posibles cambios o modificaciones de la obra o actividad autorizada en la Licencia Ambiental Integral, los titulares de ésta podrán presentar sólo los apartados que correspondan de la guía que para el efecto emita la autoridad ambiental correspondiente.
+La solicitud respectiva será presentada por el titular de la Licencia Ambiental Integral, bajo protesta de decir verdad, y será resuelta por la Comisión o los ayuntamientos, dentro del plazo de diez días hábiles contados a partir de la recepción de la misma.

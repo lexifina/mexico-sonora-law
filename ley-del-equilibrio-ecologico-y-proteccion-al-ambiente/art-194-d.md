@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 12 DE JULIO DE 2018)
+ARTÍCULO 194-D.- En los plazos establecidos por periodos se computarán todos los días; cuando se fijen por mes o por año se entenderá que el plazo concluye el mismo número de día del mes o año de calendario que corresponda, respectivamente; cuando no exista el mismo número de día en el mes de calendario, el término será el primer día hábil del siguiente mes de calendario.

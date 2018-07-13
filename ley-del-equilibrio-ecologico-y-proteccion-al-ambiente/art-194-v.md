@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE JULIO DE 2018)
+ARTÍCULO 194-V.- Una vez recibidos los alegatos o transcurrido el término para presentarlos, la Procuraduría o el Ayuntamiento correspondiente procederá a dictar por escrito la resolución administrativa que en derecho corresponda, dentro de los treinta días hábiles siguientes, misma que se notificará al interesado conforme lo establecido en el artículo 194-F.

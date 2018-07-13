@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 12 DE JULIO DE 2018)
+ARTÍCULO 194-P.- El personal autorizado, al iniciar la inspección, se identificará debidamente con la persona con quien se entienda la diligencia, exhibiéndole para tal efecto credencial vigente con fotografía expedida por autoridad competente que lo acredite para realizar visitas de inspección en la materia, y le mostrará la orden respectiva y le entregará copia de la misma con firma autógrafa, requiriéndola para que en el acto designe dos testigos.
+En caso de negativa o de que los designados no acepten fungir como testigos, el personal autorizado podrá designarlos, haciendo constar esta situación en el acta administrativa que al efecto se levante, sin que esta circunstancia invalide los efectos de la inspección.

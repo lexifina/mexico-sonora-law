@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 12 DE JULIO DE 2018)
+ARTÍCULO 194-O.- El personal autorizado, al practicar las visitas de inspección, deberá contar con credencial vigente expedida por autoridad competente que lo acredite legalmente para practicar la inspección, así como con la orden escrita debidamente fundada y motivada para realizar la visita, expedida por autoridad competente, en la que se precisará el lugar o zona que habrá de inspeccionarse, el objeto de la diligencia y el alcance de ésta.
