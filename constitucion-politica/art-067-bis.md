@@ -4,7 +4,3 @@ El pleno del Tribunal funcionará mediante una Sala Superior y contará con una 
 El Pleno de la Sala Superior del Tribunal se compondrá de cinco Magistrados que serán nombrados por el titular del Poder Ejecutivo y ratificados mediante el voto de las dos terceras partes de los diputados presentes en la sesión que corresponda. Durarán en su encargo nueve años, pudiendo ser considerados para nuevos nombramientos.
 La Sala Especializada se integrará con tres Magistrados que serán designados por el titular del Poder Ejecutivo y ratificados por el voto de las dos terceras partes de los miembros presentes del Congreso del Estado. Durarán en su encargo nueve años, pudiendo ser considerados para nuevos nombramientos.
 Los Magistrados sólo podrán ser removidos de sus cargos por las causas graves que señale la ley.
-CAPITULO III.
-Poder Ejecutivo.
-SECCION I.
-Elección y Funcionamiento.

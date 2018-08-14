@@ -1,0 +1,7 @@
+(ADICIONADO, B.O. 13 DE AGOSTO DE 2018)
+Artículo 25-F. Las autoridades estatales y municipales en el ámbito de su competencia, deberán implementar políticas públicas de mejora regulatoria para la simplificación de regulaciones, trámites, servicios y demás objetivos que establezca la Ley Estatal de la materia. Serán principios rectores los de mejora en el desempeño y racionalidad en el ejercicio del gasto en las funciones de las dependencias y entidades, así como incentivar la competitividad y el beneficio social-productivo.
+(REFORMADO, B.O. 11 DE NOVIEMBRE DE 1996)
+TITULO CUARTO.
+División de Poderes.
+CAPITULO I.
+Disposiciones Generales.
