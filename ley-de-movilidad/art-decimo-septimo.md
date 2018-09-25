@@ -1,0 +1,2 @@
+Artículo Décimo Séptimo. Los convenios y acuerdos de coordinación y colaboración administrativa relativos a los servicios público y especial de transporte, celebrados con anterioridad a la entrada en vigor del presente decreto, quedarán sujetos a la ratificación por parte del Instituto a solicitud de los ayuntamientos, en su caso se modificarán en atención a las reformas legales y reglamentarias aplicables.
+Programa de regularización

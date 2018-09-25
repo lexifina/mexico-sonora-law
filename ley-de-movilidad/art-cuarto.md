@@ -1,0 +1,2 @@
+Artículo Cuarto. El Ejecutivo del Estado deberá expedir el Reglamento de la Ley, en un término de ciento ochenta días contados a partir de la entrada en vigencia del presente Decreto, en tanto se expide, se aplicarán los Reglamentos de Transporte y de Tránsito de la Ley de Tránsito y Transporte del Estado, en todo aquello que no se oponga al contenido de la presente Ley.
+Término para expedir la reglamentación municipal

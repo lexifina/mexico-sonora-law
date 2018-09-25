@@ -1,0 +1,2 @@
+Artículo Décimo Tercero. La alusión de las concesiones del servicio público de transporte en las modalidades de intermunicipal de autotransporte y de alquiler sin ruta fija «Taxi» contenidas en la presente Ley, se entenderá realizada respecto de las modalidades de foráneo y de alquiler sin ruta fija otorgadas con anterioridad a la entrada en vigor del presente Decreto, respectivamente.
+Vigencia de actos celebrados con la anterior Ley

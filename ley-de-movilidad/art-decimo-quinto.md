@@ -1,0 +1,2 @@
+Artículo Décimo Quinto. Los concesionarios del servicio público de transporte en las modalidades de alquiler sin ruta fija «Taxi», carga en general, carga de grúa tipos «A» y «B» cuyos vehículos excedan de la vida útil y su prórroga contenidas en la tabla del artículo 127 de esta Ley, deberán hacer el cambio por otro vehículo que se encuentre dentro de la vida útil permitida, dentro de los ciento ochenta días contados a partir de la entrada en vigor del presente Decreto.
+Continuación de trámites y procedimientos administrativos iniciados

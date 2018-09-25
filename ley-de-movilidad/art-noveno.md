@@ -1,0 +1,2 @@
+Artículo Noveno. Hasta en tanto se emita el Reglamento Interior del Instituto, el ejercicio de sus atribuciones se realizarán por conducto del Director General del mismo o de las unidades administrativas de la actual Dirección General de Transporte previstas en el Reglamento Interior de la Secretaría de Gobierno y con los recursos humanos y materiales con que actualmente opera la Dirección.
+Coordinación

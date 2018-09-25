@@ -1,0 +1,2 @@
+Artículo Décimo Sexto. Los trámites y procedimientos administrativos, los de aplicación de sanciones y la substanciación de los recursos iniciados o interpuestos antes de la entrada en vigor del presente decreto, serán concluidos y resueltos por las autoridades correspondientes, de conformidad con las disposiciones legales vigentes al momento de su inicio o aplicación respectivos.
+Ratificación de convenios y acuerdos de coordinación y colaboración administrativa

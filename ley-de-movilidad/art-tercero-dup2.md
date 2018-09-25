@@ -1,0 +1,1 @@
+Artículo Tercero. Los municipios que no cuenten con la infraestructura y los recursos materiales y humanos necesarios para la aplicación del presente Decreto, contarán hasta con un año, contado a partir del inicio de su vigencia, a efecto de que adecúen su infraestructura y su organización administrativa.
