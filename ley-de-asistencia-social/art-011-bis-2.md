@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 27 DE SEPTIEMBRE DE 2018)
+ARTICULO 11 BIS 2.- Los programas que se implementen a nivel estatal y municipal en materia de atención a indigentes se deberán fundamentar en el respeto y la garantía de los derechos y libertades consagradas en la Constitución Política de los Estados Unidos Mexicanos y de manera especial, en los principios de Dignidad Humana, Autonomía personal y Participación Social.

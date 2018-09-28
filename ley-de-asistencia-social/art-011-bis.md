@@ -1,0 +1,5 @@
+(ADICIONADO, B.O. 27 DE SEPTIEMBRE DE 2018)
+ARTICULO 11 BIS.- La Secretaría de Desarrollo Social tendrá las siguientes atribuciones:
+I.- Implementar programas para la atención de toda aquella persona que viva en la indigencia, dando prioridad a las niñas, niños u adolescentes que se encuentran en situación de riesgo o afectados por vivir en la calle;
+II.- Realizar un diagnóstico, a fin de determinar la caracterización demográfica socioeconómica de los indigentes, a efecto de establecer una línea de base para construir los parámetros de intervención social en la formulación, implementación, seguimiento y evaluación del impacto de las acciones emprendidas tanto por el Estado como los Municipio (sic) para la atención de los indigentes; y
+III.- Coordinarse con las demás dependencias y entidades estatales y municipales para que, dentro del ámbito de sus atribuciones, coadyuven con la Federación en términos de la Ley de Asistencia Social de nivel federal y esta ley, en la atención a la problemática de indigencia en el Estado.
