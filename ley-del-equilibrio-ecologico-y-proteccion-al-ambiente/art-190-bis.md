@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 27 DE SEPTIEMBRE DE 2018)
+ARTÍCULO 190 BIS.- El Fondo Ambiental Estatal contará con un órgano de gobierno mixto integrado por la Administración Pública Estatal, representantes provenientes de los sectores académico, empresarial, grupos vulnerables y sociedad civil organizada, que deberán comprobar que su objeto y experiencia se relaciona con la protección al medio ambiente y el cambio climático.
