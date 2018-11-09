@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- El Congreso del Estado en sesión solemne y en conmemoración, inscribirá en letras doradas en la sala de sesiones la frase "En memoria de los caídos en la lucha por la democracia de la Plaza de las Tres culturas en Tlatelolco, en 1968"

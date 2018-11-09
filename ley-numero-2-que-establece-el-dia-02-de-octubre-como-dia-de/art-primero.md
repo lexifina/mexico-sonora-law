@@ -1,0 +1,2 @@
+ARTÍCULO PRIMERO.- El Congreso del Estado de Sonora declara el día 02 de octubre de cada año como "Día de luto estatal en memoria de las víctimas que fallecieron en la matanza en la Plaza de las Tres Culturas en Tlatelolco."
+Los poderes Legislativos, Ejecutivo, Judicial, los ayuntamientos y las escuelas e instituciones educativas de la Entidad, deberán izar a media asta la bandera y guardar un minuto de silencio; además, celebrar, actos conmemorativos que permitan honrar la memoria de las víctimas de los trágicos acontecimientos señalados en el párrafo anterior.
