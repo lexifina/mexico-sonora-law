@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, B.O. 18 DE JULIO DE 2017)
-ARTICULO 212 BIS 1.- Comete el delito de acoso sexual quien mediante conductas verbales de una forma reiterada y con fines lascivos asedie a una persona de cualquier sexo, que la ponga en riesgo o cause un daño psicológico que lesione su dignidad.
+(REFORMADO PRIMER PÁRRAFO, B.O. 22 DE NOVIEMBRE DE 2018)
+ARTÍCULO 212 BIS 1.- Comete el delito de acoso sexual quien asedie sexualmente a una persona de cualquier sexo y la ponga en riesgo o que lesione su dignidad.
 (ADICIONADO, B.O. 19 DE DICIEMBRE DE 2016)
 Al responsable de este delito se sancionará con una pena de dos a cuatros (sic) años de prisión y multa de cien a trescientas unidades de medida y actualización.
 (ADICIONADO, B.O. 19 DE DICIEMBRE DE 2016)
