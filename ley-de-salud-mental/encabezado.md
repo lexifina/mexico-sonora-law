@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE SALUD MENTAL DEL ESTADO DE SONORA
 Ley publicada en la Sección VI del Boletín Oficial del Estado de Sonora, el lunes 16 de diciembre de 2013.
 GUILLERMO PADRÉS ELÍAS, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:

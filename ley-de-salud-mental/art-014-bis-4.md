@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 22 DE NOVIEMBRE DE 2018)
+Artículo 14 Bis 4.- Las sesiones ordinarias y extraordinarias de la Junta Directiva se celebrarán conforme a los tiempos, formalidades y funcionamiento que se establezcan en la Ley Orgánica del Poder Ejecutivo del Estado de Sonora y demás normatividad aplicable.
+A las sesiones de la Junta Directiva asistirá el Director General, quien fungirá como Secretario Técnico, y un comisario designado por la Secretaría de la Contraloría General del Estado, quien será el responsable de validar el quórum legal y los acuerdos que se tomen en las sesiones. Ambos integrantes tendrán derecho a voz, pero sin voto.

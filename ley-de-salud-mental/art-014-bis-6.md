@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 22 DE NOVIEMBRE DE 2018)
+Artículo 14 Bis 6.- El Director General será el representante legal y titular de la administración del Instituto y tendrá las atribuciones, facultades y funciones que le señale la Ley Orgánica del Poder Ejecutivo del Estado de Sonora, la presente Ley y las demás que se señalen en disposiciones jurídicas vigentes en el Estado, así como las que se establezcan en el Reglamento Interior del Instituto.

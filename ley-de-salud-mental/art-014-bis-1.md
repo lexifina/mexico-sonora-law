@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 22 DE NOVIEMBRE DE 2018)
+Artículo 14 Bis 1.- La Junta Directica (sic) podrá solicitar a la autoridad estatal competente, de conformidad con las disposiciones normativas aplicables, la desafectación de algún inmueble patrimonio del Instituto, cuando éste deje de estar sujeto a la prestación del servicio propio de su objeto, a fin de que sea inscrita su desafectación en el Registro Público de la Propiedad correspondiente, en cuyo caso el inmueble desafectado será considerado bien del dominio privado del Instituto y sujeto a las disposiciones de derecho común.
