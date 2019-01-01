@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, B.O. 31 DE DICIEMBRE DE 2012)
 Artículo 292 Bis-1.- No causará la contribución a que se refiere este Capítulo, los pagos que se realicen por los siguientes conceptos:
 I.- Impuesto por la prestación de un servicio prestado bajo la dirección y dependencia de un tercero; impuesto al ejercicio de profesiones liberales, artísticas e innominadas e impuesto para el sostenimiento de las Universidades de Sonora y las Contribuciones para el Consejo Estatal de Concertación para la Obra Pública.
