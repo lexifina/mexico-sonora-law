@@ -1,5 +1,4 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
-(ADICIONADO, B.O. 15 DE DICIEMBRE DE 2014)
-ARTÍCULO 146 TER.- La Secretaría de Hacienda podrá reducir total o parcialmente multas y recargos por infracciones a las disposiciones fiscales, a solicitud por escrito del sujeto obligado o su representante legal donde exprese las circunstancias que dificultan el regularizarse fiscalmente, para valoración y de proceder, la autorización que corresponda, siempre y cuando el importe de cada concepto a reducir, sean inferiores o iguales al equivalente en moneda nacional a 800 unidades de inversión.
+(REFORMADO PRIMER PÁRRAFO, B.O. 24 DE DICIEMBRE DE 2018)
+ARTÍCULO 146-TER.- La Secretaría de Hacienda podrá reducir total o parcialmente multas y recargos por infracciones a las disposiciones fiscales, a solicitud por escrito del sujeto obligado o su representante legal donde exprese las circunstancias que dificultan el regularizarse fiscalmente, para valoración y de proceder, la autorización que corresponda, siempre y cuando el importe de cada concepto a reducir, sean inferiores o iguales al equivalente en moneda nacional a 800 unidades de medida y actualización.
 (REFORMADO, B.O. 26 DE DICIEMBRE DE 2016)
 Lo previsto en este artículo no constituye instancia, las autorizaciones que otorguen no podrán ser impugnadas por los particulares y deberán ser publicadas conforme a las reglas que al efecto emitan las autoridades correspondientes.
