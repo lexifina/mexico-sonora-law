@@ -7,6 +7,7 @@ I.- Por la expedición de actas:
 1.1.- Impreso del libro (medio electrónico). $50.00
 1.2.- Transcripción del libro (mecanografiada). $50.00
 1.3.- (DEROGADO, B.O. 31 DE DICIEMBRE DE 2009)
-(REFORMADO PRIMER PÁRRAFO, B.O. 31 DE DICIEMBRE DE 2009)
-II.- Por la búsqueda que se efectúe para la localización de un acta, de uno a cinco años, cuando el acta no ha sido localizada en la base de datos del sistema de consulta. $50.00
-1.- Por la expedición de certificados de inexistencia respectivo. $50.00
+(REFORMADA [N. DE E. CON SUS NUMERALES], B.O. 24 DE DICIEMBRE DE 2018)
+II.- Por la búsqueda que se efectúe para la localización de un acta, de uno a cinco años, cuando el acta no ha sido localizada en la base de datos del sistema de consulta estatal e interestatal: $146.00
+1.- Por la expedición de certificados de inexistencia de cualquier acto, exceptuando nacimiento: $146.00
+2.- Por la búsqueda que se efectué para la localización de un acta de nacimiento y expedición de certificado de inexistencia respectivo para inscripción estatal e interestatal. Gratuita.

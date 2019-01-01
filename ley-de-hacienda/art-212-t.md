@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 24 DE DICIEMBRE DE 2018)
+Artículo 212-T.- El impuesto se causará en el momento en el que la persona física o moral, pague al prestador de servicios de juegos con apuestas, sorteos o concursos, los montos o contraprestaciones que le permitan participar en dichos juegos, sorteos o concursos, hasta por el monto de cada pago que se realice, aún cuando el derecho a participar en el juego, sorteo o concurso, se verifique en una fecha posterior y, con independencia de quien ejerce el derecho a participar.

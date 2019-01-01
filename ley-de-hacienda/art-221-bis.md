@@ -4,5 +4,3 @@ Artículo 221 Bis.- Las personas físicas o morales que contraten la prestación
 Las autoridades fiscales podrán requerir a las personas físicas o morales la presentación de la información a que se refiere el párrafo anterior, a fin de que en un plazo máximo de diez días cumplan con lo solicitado.
 (ADICIONADO, B.O. 19 DE DICIEMBRE DE 2013)
 Por el personal directivo o de base, no incluidos en dicho contrato de prestación de servicios de personal, deberá de pagarse el Impuesto de acuerdo a lo especificado en este Capítulo.
-Sección Segunda
-Del Impuesto a la Prestación de Servicios bajo la Dirección y Dependencia de un Tercero
