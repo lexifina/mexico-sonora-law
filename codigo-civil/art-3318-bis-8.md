@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 27 DE SEPTIEMBRE DE 2018)
+Art. 3318 BIS 8.- En caso de incumplimiento del pensionario en las ministraciones pactadas, el pensionista estará en condiciones de solicitar la recisión (sic) del contrato y exigir el pago de los daños y perjuicios, o en su caso, el pago de la pena pactada. Además, se tendrá la deuda como liquidada y no generará más intereses; debiendo el pensionario liberar a su costa el gravamen correspondiente. Para el caso de que se constituya una nueva hipoteca inversa sobre el mismo inmueble, ésta tendrá prelación respecto de la anterior.

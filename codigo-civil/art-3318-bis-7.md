@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 27 DE SEPTIEMBRE DE 2018)
+Art. 3318 BIS 7.- El inmueble no podrá ser transmitido por acto intervivos sin el consentimiento del pensionario. El incumplimiento de esta obligación le conferirá el derecho de declarar vencido anticipadamente el total del adeudo y exigible a la fecha, a menos que se sustituya la garantía en forma bastante e igual a la anterior en un plazo de seis meses.
