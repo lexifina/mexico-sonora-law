@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 13 DE JUNIO DE 2019)
+ARTÍCULO 65 BIS.- Los sujetos obligados que se señalan en el artículo 65 de esta Ley, tienen la obligación de dar a conocer sus Programas Internos, así como cualquier modificación a dichos programas, a solicitud del ayuntamiento del municipio en el que se encuentren ubicados sus respectivos establecimientos, edificaciones o inmuebles, o en donde desarrollen sus actividades de manejo, almacenamiento, transportación, distribución y utilización de materiales peligrosos, hidrocarburos, combustibles y explosivos.
+Los ayuntamientos tendrán la facultad de revisar y verificar la veracidad de los programas internos de los sujetos obligados.

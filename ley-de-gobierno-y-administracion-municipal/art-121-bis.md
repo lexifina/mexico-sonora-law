@@ -34,6 +34,10 @@ XXXI.- Modernizar los catastros y registros públicos de la propiedad, así como
 XXXII.- Realizar contrataciones públicas de obras y servicios que preserven e impulsen el desarrollo urbano sostenible;
 XXXIII.- Incrementar el número de trámites que la población pueda efectuar en línea, sin necesidad de acudir a una oficina pública;
 XXXIV.- Promover el acceso a Internet gratuito en los edificios y espacios públicos;
-XXXV.- Difundir información y conocimientos sobre el desarrollo urbano sustentable y los estilos de vida en armonía con la naturaleza; y
-XXXVI.- Salvaguardar y proteger el patrimonio cultural y natural del municipio.
+(REFORMADA, B.O. 13 DE JUNIO DE 2019)
+XXXV.- Difundir información y conocimientos sobre el desarrollo urbano sustentable y los estilos de vida en armonía con la naturaleza;
+(REFORMADA, B.O. 13 DE JUNIO DE 2019)
+XXXVI.- Salvaguardar y proteger el patrimonio cultural y natural del municipio; y
+(ADICIONADA, B.O. 13 DE JUNIO DE 2019)
+XXXVII.- Lograr que se den polos de desarrollo en todas las áreas poblacionales del municipio de una manera proporcional y equitativa, que tengan todas estas las mismas posibilidades de crecer.
 Los Ayuntamientos podrán incorporar otros objetivos y metas relacionados con el desarrollo urbano sustentable que estimen convenientes, de acuerdo a las condiciones específicas de cada uno de ellos.
