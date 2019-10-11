@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 28 DE JUNIO DE 2010)
+ARTICULO 89 BIS.- Las tiendas escolares que vendan o fomenten el consumo de alimentos de bajo o nulo valor nutricional en instituciones de nivel básico y no se ajusten al control que dispongan el Ejecutivo Estatal y los ayuntamientos, así como a los responsables de los mismos, se les aplicarán las sanciones administrativas que correspondan en los términos de esta ley.
