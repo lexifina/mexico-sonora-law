@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 27 DE DICIEMBRE DE 2019)
+ARTICULO 336 BIS.- Se impondrá prisión de dos a seis años y multa de diez a doscientas Unidades de Medida y de (sic) Actualización, a quien cometa el delito de violencia política de género.
+Se entenderá por violencia política de género a quien por cualquier medio impida, obstaculice o realice por sí o a través de terceros cualquier acción u omisión con el ánimo de causar daño físico, psicológico, sexual, económico o de otra índole, resultado de discriminación por razón de género en contra de una o más mujeres que tenga como propósito restringir, suspender o impedir el ejercicio de sus derechos político-electorales o inducirla u obligarla a tomar decisiones de la misma índole en contra de su voluntad o de la ley.
