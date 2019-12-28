@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 27 DE DICIEMBRE DE 2019)
+ARTICULO 169-E.- A quien, a través del turismo sexual, realice cualquier tipo de actos sexuales reales o simulados con una o varias personas menores de dieciocho años de edad, o con una o varias personas que no tienen capacidad para comprender el significado del hecho o con una o varias personas que no tienen capacidad para resistirlo, se le impondrá una pena de quince a veinte años de prisión y una multa de dos mil a tres mil unidades de medida y actualización.
