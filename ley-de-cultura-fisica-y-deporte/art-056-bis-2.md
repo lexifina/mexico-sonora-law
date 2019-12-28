@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 27 DE DICIEMBRE DE 2019)
+Artículo 56 BIS 2.- El Fondo se integrará con los recursos que para tal efecto se determinen en el Presupuesto de Egresos del Estado de Sonora para el ejercicio fiscal correspondiente, conforme a la disponibilidad presupuestal, así como con los recursos que promueva y se allegue por cualquier medio lícito, con el apoyo de la participación privada y social, conforme a este Ley y el reglamento.
+Las aportaciones que personas físicas o morales realicen al Fondo, serán deducibles de impuestos en los términos que se establezcan para tal efecto en la legislación aplicable.
