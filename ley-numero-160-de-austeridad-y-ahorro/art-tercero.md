@@ -1,0 +1,1 @@
+Artículo Tercero.- Los sujetos obligados contarán con ciento ochenta días naturales para determinar y aprobar, en los términos de la legislación vigente, las modificaciones presupuestales que sean necesarias para cumplir las disposiciones establecidas en esta Ley.

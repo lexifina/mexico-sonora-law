@@ -1,0 +1,4 @@
+Artículo Séptimo.- Se derogan todas las disposiciones que se opongan a la presente Ley.
+Comuníquese a la Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado.- SALON DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 24 de diciembre de 2019. C. MARÍA MAGDALENA URIBE PEÑA, DIPUTADA PRESIDENTA.- RÚBRICA. C. CARLOS NAVARRETE AGUIRRE, DIPUTADO SECRETARIO.- RÚBRICA.- C. ROSA ICELA MARTÍNEZ ESPINOZA, DIPUTADA SECRETARIA.- RÚBRICA.-
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los veintisiete días del mes de diciembre del año dos mil diecinueve.- GOBERNADORA DEL ESTADO.- CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- MIGUEL ERNESTO POMPA CORELLA.- RÚBRICA.
