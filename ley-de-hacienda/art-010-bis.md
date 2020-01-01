@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 27 DE DICIEMBRE DE 2019)
+Artículo 10 Bis.- Las Oficinas de Convenciones y Visitantes están obligadas a informar a la Secretaría de Hacienda del Estado dentro de los 10 días naturales posteriores a cada trimestre, información detallada de los RFC de los establecimientos de hospedaje que correspondan a su circunscripción municipal.
+El Fideicomiso presentará al Instituto Superior de Auditoría y Fiscalización y a la Secretaría de Hacienda del Estado de Sonora, a más tardar el tercer lunes del mes de mayo de cada año, un informe financiero de la aplicación y destino de los recursos aportados por el Gobierno del Estado durante el año inmediato anterior.

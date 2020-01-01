@@ -4,3 +4,5 @@ La Secretaría de Hacienda hará efectivo el estímulo mediante la presentación
 Los contribuyentes beneficiarios al estímulo previsto en este artículo deberán presentar sus declaraciones fiscales de conformidad con las disposiciones vigentes, señalando el monto del impuesto causado y el monto del estímulo a que sean acreedores, mismo que será deducido del impuesto.
 (REFORMADO, B.O. 21 DE DICIEMBRE DE 2017)
 El beneficio que se confiere en el presente artículo no otorga a los contribuyentes el derecho de devolución o compensación, ni será aplicable en los accesorios en caso de que estos se hubieren causado.
+(ADICIONADO, B.O. 27 DE DICIEMBRE DE 2019)
+El otorgamiento de los beneficios en el pago del impuesto a que se refiere el presente artículo, no exime el pago del Impuesto para el Sostenimiento de las Universidades de Sonora y de la Contribución para el Consejo Estatal de Concertación para la Obra Pública ni las Contribuciones para el Fortalecimiento de la Infraestructura Educativa.
