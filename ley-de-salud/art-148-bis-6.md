@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 5 DE MARZO DE 2020)
+ARTICULO 148 BIS 6.- La Secretaría de Educación y Cultura y la Secretaría de Salud Pública, deberán coordinarse para incluir en sus respectivos proyectos de Presupuesto de Egresos de cada ejercicio fiscal, un monto suficiente que garantice la operación del programa de salud bucodental en la prevención de enfermedades bucodentales, a fin de otorgar al inicio de cada ciclo escolar, un paquete de salud bucodental a todos los alumnos inscritos en escuelas públicas de niveles preescolar y primaria del Estado de Sonora.

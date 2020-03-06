@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 5 DE MARZO DE 2020)
+ARTICULO 148 BIS 5.- La Secretaría de Educación y Cultura y la Secretaría de Salud Pública, serán las dependencias responsables de operar, de manera coordinada, el proceso de formación, adquisición, distribución y entrega de los paquetes de salud bucodental, para lo cual deberán llevar un registro y control de los paquetes de salud bucodental entregados y podrán solicitar el apoyo de otras dependencias, órganos desconcentrados, entidades y órganos administrativos del Estado, para la ejecución del programa de salud bucodental.

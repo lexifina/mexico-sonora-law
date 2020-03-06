@@ -1,6 +1,6 @@
-(REFORMADA SU DENOMINACIÓN, B.O. 3 DE AGOSTO DE 2017)
-CAPÍTULO IV
-ENFERMEDADES CARDIOVASCULARES, OBESIDAD Y DIABETES, ASI COMO ENFERMEDADES RENALES EN LA POBLACION INFANTIL DEL ESTADO
+(REFORMADA SU DENOMINACIÓN, B.O. 5 DE MARZO DE 2020)
+CAPITULO IV
+ENFERMEDADES CARDIOVASCULARES, OBESIDAD, DIABETES, ENFERMEDADES RENALES Y SALUD BUCODENTAL EN LA POBLACION INFANTIL DEL ESTADO
 (REFORMADO PRIMER PÁRRAFO, B.O. 3 DE AGOSTO DE 2017)
 ARTICULO 148 BIS.- Las autoridades sanitarias, en coordinación con la Secretaría de Salud y el Consejo de Salubridad General, ejecutarán en el Estado el programa contra las enfermedades cardiovasculares, la obesidad y la diabetes, así como las enfermedades renales en la población infantil en el Estado que comprenderá, entre otras, las siguientes acciones:
 (REFORMADA, P.O. 23 DE JUNIO DE 2011)
