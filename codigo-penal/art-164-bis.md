@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 1 DE JUNIO DE 2020)
+ARTICULO 164 BIS.- Al que cometa una agresión o acto de violencia en contra de médicos, cirujanos, personal de enfermería y demás profesionistas similares y auxiliares o cualquiera que se desenvuelva como personal de salud del sector público o privado que presten sus servicios en el Estado, durante el periodo que comprenda la declaración de una emergencia o contingencia sanitaria, se le aplicarán de uno a cuatro años en prisión, multa de ciento cincuenta a cuatrocientas Unidades de Medida y Actualización y de cien a doscientos cincuenta días de trabajo comunitario, además de la pena que le corresponda por el delito cometido.
+En el supuesto anterior, este delito se perseguirá de oficio.
