@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 23 DE JULIO DE 2020)
+Artículo 39 BIS.- El Instituto tiene la obligación de otorgar las becas especiales a que se refiere el artículo 39, fracción I, inciso c), que sean solicitadas por alumnos de educación básica y media superior, que cuenten con alguna discapacidad en términos de la Ley para la Inclusión y Desarrollo de las Personas con Discapacidad o Personas en Situación de Discapacidad del Estado de Sonora, salvo los casos señalados en el artículo 47.

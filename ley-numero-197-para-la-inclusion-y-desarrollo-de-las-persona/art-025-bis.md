@@ -1,0 +1,4 @@
+(ADICIONADO, B.O. 23 DE JULIO DE 2020)
+ARTÍCULO 25 BIS.- En la educación se considerará la formación académica de las personas con discapacidad de acuerdo a lo establecido en los diferentes niveles educativos. Su discapacidad no será causa de rechazo o exclusión de ninguna institución de educación pública o privada en el Estado, conforme a lo estipulado en la Ley de Educación Estatal.
+A efecto de garantizar el derecho establecido en el párrafo anterior, el Instituto de Becas y Crédito Educativo del Estado de Sonora, otorgará becas solicitadas por alumnos inscritos en educación básica y media superior, que cuenten con alguna discapacidad en términos de la presente Ley.
+Los mayores de edad que presenten signos de discapacidad, que no hayan cursado o concluido la educación básica, serán incorporados al Sistema Estatal o Nacional de Educación para Adultos.
