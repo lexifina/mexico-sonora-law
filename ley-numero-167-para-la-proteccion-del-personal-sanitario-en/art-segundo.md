@@ -1,0 +1,4 @@
+ARTÍCULO SEGUNDO.- El Comité previsto por el artículo cuarto de la presente Ley deberá ser conformado en un plazo máximo de siete días a partir de la publicación de la presente Ley.
+Comuníquese a la Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado.- SALON DE SESIONES DEL H. CONGRESO DEL ESTADO, Hermosillo, Sonora, 14 de agosto de 2020, C. CARLOS NAVARRETE AGUIRRE, DIPUTADO PRESIDENTE.- RÚBRICA.- C. ROSA ICELA MARTÍNEZ ESPINOZA, DIPUTADA SECERETARIA.- RÚBRICA.- C. MA. MAGDALENA URIBE PEÑA, DIPUTADA SECRETARIA.- RÚBRICA.
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los veinticinco días del mes de agosto del año dos mil veinte.- GOBERNADORA DEL ESTADO.- CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- MIGUEL ERNESTO POMPA CORELLA.- RÚBRICA.
