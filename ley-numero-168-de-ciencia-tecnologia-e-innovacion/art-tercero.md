@@ -1,0 +1,4 @@
+ARTÍCULO TERCERO.- Se derogan las disposiciones legales y administrativas que se opongan a la presente Ley.
+Comuníquese a la Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estarlo.- SALON DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 08 de septiembre de 2020. C. LUIS ARMANDO COLOSIO MUÑOZ, DIPUTADO PRESIDENTE.- RÚBRICA.- C. MARCIA LORENA CAMARERA MONCADA, DIPUTADA SECRETARIA.- RÚBRICA.- C. MARÍA DOLORES DEL RÍO SÁNCHEZ, DIPUTADA-SECRETARIA.- RÚBRICA.
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estados, se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la Ciudad de Hermosillo, Sonora, a los catorce días del mes de septiembre del año dos mil veinte.- GOBERNADORA DEL ESTADO.- CLAUDIA ARTEMIZA PAVLOVICH ARELLANO, RÚBRICA.- SECRETARIO DE GOBIERNO.- MIGUEL ERNESTO POMPA CORELLA.- RÚBRICA,

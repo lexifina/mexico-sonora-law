@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley 78, de Fomento a la Innovación y al Desarrollo Científico y Tecnológico del Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado, número 46, Sección I, de fecha 7 de Junio de 2007.
