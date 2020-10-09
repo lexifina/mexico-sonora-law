@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Las personas que a la entrada en vigor de la presente Ley estén llevando a cabo operaciones de intermediación inmobiliaria y tengan su licencia vencida, deberán dentro de un plazo de tres meses, contados a partir de la entrada en vigor de la presente Ley, comparecer ante la Secretaría y tramitar su licencia como Asesor Inmobiliario.

@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- El Titular del Poder Ejecutivo del Estado emitirá el Reglamento de la presente Ley dentro de los siguientes cuarenta y cinco días naturales, contados a partir de la entrada en vigor de la presente Ley.

@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley que Crea el Registro Estatal de Agentes Inmobiliarios, publicada en el Boletín Oficial del Gobierno del Estado de Sonora, número 40, Sección 1, de fecha 23 de mayo del 2002 y sus modificaciones de fecha 12 de Abril de 2007 y de fecha 4 de Agosto 2008.
