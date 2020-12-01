@@ -1,0 +1,7 @@
+B.O. 30 DE NOVIEMBRE DEL 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 148, QUE REFORMA, DEROGA Y ADICIONA DISPOSICIONES DE LA LEY DEL NOTARIADO Y DEL CÓDIGO CIVIL PARA EL ESTADO DE SONORA".]
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO SEGUNDO.- Los jueces locales que, a la fecha, hubieren sido autorizados para ejercer la función notarial, deberán entregar a la Dirección General de Notarias, dentro de los quince días siguientes a la entrada en vigor del presente Decreto, el protocolo y los libros, apéndices y archivo notarial, así como sellos, levantándose por la Dirección un acta circunstanciada, en la que se hará un inventario que incluya todos los libros, los testamentos cerrados que estuvieren en su guarda, los títulos, y cualquier otro documento.
+ARTÍCULO TERCERO.- Los Estatutos que se hubieren creado en asamblea del Colegio de Notarios antes de entrar en vigor el presente Decreto, seguirán siendo vigentes en lo que no se contrapongan al presente Decreto.
+ARTÍCULO CUARTO.- En el caso de la reelección prevista en el artículo 129 de la presente ley, solamente será aplicable para los Consejos Directivos que asuman sus cargos con posterioridad a la entrada en vigor del presente decreto.
+ARTÍCULO QUINTO.- Se derogan las disposiciones que se opongan al presente Decreto.
