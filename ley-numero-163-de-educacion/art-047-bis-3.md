@@ -1,0 +1,14 @@
+Artículo 47 BIS 3.- El Consejo Estatal de Vinculación tendrá las siguientes atribuciones:
+I.- Evaluar los planes y programas de estudio con el fin (sic) revisar sus alcances y determinar las áreas de mejora de los mismos;
+II.- Formar comisiones especiales para la evaluación y análisis de la pertinencia de los planes y programas de estudio, así como emitir opinión sobre las propuestas de nuevas carreras en función de las vocaciones productivas regionales y de los sectores estratégicos para el desarrollo de la Entidad, así como de la necesidad de dar solución a problemáticas sociales apremiantes;
+III.- Proponer a la autoridad educativa competente, los cambios que considere necesarios en los planes y programas de estudio con el fin de que estos den respuesta a las necesidades de las diferentes industrias regionales, nacionales e internacionales, y coadyuven en la solución de problemáticas sociales apremiantes;
+IV.- Coadyuvar con la autoridad educativa competente, cuando esta se lo solicite, en la formulación de programas educativos afines con su objeto:
+V.- Proponer políticas orientadas a la vinculación de la academia con los sectores productivos y sociales, así como participar, cuando se le solicite, en el rediseño y reconducción de las políticas existentes;
+VI.- Identificar programas exitosos en otras regiones o países y proponerlos a la autoridad educativa competente y/o a cualquier otra dependencia estatal y coadyuvar, si le fuera solicitado, en su implementación;
+VII.- Promover y proponer ante los distintos niveles de gobierno y la iniciativa privada, la inversión en la infraestructura necesaria para la creación de Centros de Desarrollo de las habilidades para estudiantes, los cuales deberán fomentar la creatividad y la innovación, así como el gusto por la ciencia y la tecnología y en general, cualquier otra inversión necesaria para la consecución de sus objetivos;
+VIII.- Promover las habilidades de los estudiantes y egresados en las distintas regiones del país ante los inversionistas nacionales y extranjeros;
+IX.- Establecer una relación de colaboración con las dependencias y entidades gubernamentales y las instituciones públicas o privadas relacionadas con la educación;
+X.- Fungir como vínculo entre los sectores educativo, productivo y social con la finalidad de recabar sus opiniones e inquietudes y transmitirlas en las propuestas de modificaciones a los planes y programas de estudio, logrando con ello formar profesionistas adecuados a las necesidades de los sectores productivos regionales, nacionales e internacionales, así como capaces de plantar soluciones a problemáticas sociales apremiantes; y
+XI.- Promover en el sector educativo la implementación de programas de capacitación, formación y certificación para los trabajadores en activo.
+(ADICIONADO, B.O. 21 DE DICIEMBRE DE 2020)
+Colaboración con el Consejo Estatal de Vinculación
