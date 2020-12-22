@@ -1,0 +1,3 @@
+Artículo 94 BIS.- El Estado y los ayuntamientos deberán reconocer y otorgar el derecho a la movilidad académica o estudiantil, entendiéndose esta como el tránsito o movimiento que realizan los alumnos inscritos en el nivel de educación media superior y superior para cursar asignaturas en otras instituciones de nivel equivalente, sin perder sus derechos académicos y con el compromiso de regresar a su institución de origen con base en los acuerdos o convenios debidamente establecidos que lo regulen.
+(ADICIONADO, B.O. 21 DE DICIEMBRE DE 2020)
+Criterios y lineamientos para la movilidad académica o estudiantil

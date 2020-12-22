@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 21 DE DICIEMBRE DE 2020)
+ARTÍCULO 19 Bis.- Cada Municipio del Estado, deberá contar con un Cronista, el cual tendrá las (sic) función de investigar, conservar, proteger, y enriquecer la información relacionada a los acontecimientos históricos y al Patrimonio Cultural tangible e intangible de su Municipio; además de ser asesor y fuente de información en estos temas, para todos los ciudadanos que se lo soliciten.
