@@ -13,8 +13,8 @@ El otorgamiento del estímulo en el pago del impuesto a que se refiere el presen
 (DEROGADO SÉPTIMO PARRAFO, B.O. 24 DE DICIEMBRE DE 2018)
 (ADICIONADO, B.O. 15 DE ENERO DE 2009)
 El beneficio que se confiere en el presente artículo no otorga a los contribuyentes el derecho de devolución, ni será aplicable en los accesorios en caso de que estos se hubieren causado.
-(ADICIONADO, B.O. 15 DE DICIEMBRE DE 2014)
-Se otorga un estímulo fiscal a las micros, pequeñas, medianas y grandes empresas establecidas en el Estado que hayan generado empleos en los últimos 12 meses, o que vayan a generar empleo en el ejercicio fiscal de que se trate, equivalente al 13.8% del Impuesto sobre Remuneraciones al Trabajo Personal que se cause, el cual se disminuirá contra el propio impuesto, en la misma declaración del período al que corresponda el pago, en ese sentido los impuestos estatales causados por el pago de este impuesto sobre Remuneración al Trabajo Personal serán determinados una vez aplicando el estímulo.
+(REFORMADO, B.O. 24 DE DICIEMBRE DE 2020)
+Se otorga un estímulo fiscal a las micros, pequeñas, medianas y grandes empresas establecidas en el Estado que hayan generado empleos en los últimos 12 meses, o que vayan a generar empleo en el ejercicio fiscal de que se trate, equivalente al 13.8% del Impuesto sobre Remuneraciones al Trabajo Personal que se cause, el cual se disminuirá contra el propio impuesto, en la misma declaración del período al que corresponda el pago.
 (REFORMADO [N. DE E. ESTE PÁRRAFO], B.O. 21 DE DICIEMBRE DE 2017)
 Dicho estímulo será aplicable a todas las micros, pequeñas, medianas y grandes empresas del Estado que se encuentren legal y físicamente establecidas en Sonora; y que además hayan incrementado el número de trabajadores en los parámetros establecidos en la siguiente tabla, considerando para ello el incremento en la plantilla laboral, tomando como base los empleados formales registrados ante el Instituto Mexicano del Seguro Social o cualquier otro instituto de seguridad social legalmente reconocido al último día del ejercicio fiscal siguiente:
 [N. DE E. VÉASE TABLA EN EL B.O. DE 15 DE DICIEMBRE DE 2014, PÁGINA 7.]
@@ -31,8 +31,7 @@ Para efectos del presente artículo, se considera como plantilla laboral el núm
 El beneficio fiscal establecido en el presente artículo se aplicará única y exclusivamente si sus beneficiarios se encuentran al corriente en sus obligaciones fiscales, en el momento en que se aplique el estímulo.
 (ADICIONADO, B.O. 15 DE DICIEMBRE DE 2014)
 El beneficio fiscal señalado en el presente artículo, no será acumulable con otras reducciones o estímulos relacionados con el Impuesto sobre las Remuneraciones al Trabajo del Personal, ni dará derecho a devolución o compensación alguna.
-(ADICIONADO, B.O. 15 DE DICIEMBRE DE 2014)
-Las empresas que no se ubiquen en los supuestos señalados en el presente artículo, podrán tener el presente beneficio, únicamente en el caso de que hayan realizado inversiones en activos fijos que representen un incremento de un 10% en el valor de los mismos, tomando como base para su cálculo, el valor de los activos al último día del ejercicio fiscal inmediato anterior y su aumento al último día del ejercicio fiscal siguiente, o bien que durante el ejercicio de que se trate realicen inversiones en activos fijos con las cuales vayan a incrementar el valor de los mismos en un 10% en comparación con el mismo mes del ejercicio anterior.
+(DEROGADO DÉCIMO SÉPTIMO PÁRRAFO, B.O. 24 DE DICIEMBRE DE 2020)
 (ADICIONADO, B.O. 15 DE DICIEMBRE DE 2014)
 El otorgamiento de los beneficios en el pago del impuesto a que se refiere el presente artículo, no exime el pago del impuesto para el sostenimiento de las Universidades de Sonora y de la contribución para el Consejo Estatal de Concertación para la Obra Pública ni las Contribuciones para el Fortalecimiento de la Infraestructura Educativa.
 (REFORMADO, B.O. 21 DE DICIEMBRE DE 2017)

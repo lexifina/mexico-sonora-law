@@ -5,6 +5,8 @@ ARTÍCULO TERCERO.- Para la instalación del Sistema de Información, Vigilancia
 ARTÍCULO CUARTO.- Los Servicios de Salud de Sonora contarán con ciento ochenta días contados a partir de la entrada en vigor de la presente ley, para emitir el Programa de Salud Mental, los programas respectivos así como los reglamentos que correspondan.
 ARTÍCULO QUINTO.- Los módulos de Atención en Salud Mental y el Sistema de Información, Vigilancia y Evaluación en Salud Mental, comenzarán a operar cuando entre en vigor el Reglamento de la presente Ley; de igual forma comenzaran a operar la línea telefónica de salud mental y la página electrónica para brindar orientación y canalización a los servicios de atención mental.
 ARTÍCULO SEXTO.- Las Unidades de Atención Ambulatoria Inmediata y las Unidades de Hospitalización de Corta Estancia deberán instrumentarse paulatinamente conforme a la disponibilidad presupuestal y la demanda de servicios de atención en materia de salud mental.
+(ADICIONADO, B.O. 24 DE DICIEMBRE DE 2020)
+ARTÍCULO SÉPTIMO.- Durante la vigencia de una declaratoria de emergencia, contingencia sanitaria, epidemiológica, desastre o cualquier otra medida urgente encaminada a la conservación de la vida, salud o supervivencia humana en general las obligaciones a que refiere la presente Ley, entre otras, la relativa al artículo 59 de este cuerpo normativo, se suspenderá hasta que exista un balance presupuestal que permita retomar su vigencia y ejecución.
 Comuníquese al Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado.
 SUFRAGIO EFECTIVO. NO REELECCION.
 Hermosillo, Sonora, 19 de noviembre de 2013.

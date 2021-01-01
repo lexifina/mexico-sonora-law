@@ -1,6 +1,5 @@
 [N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE HACIENDA DEL ESTADO DE SONORA
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL BOLETÍN OFICIAL DEL 30 DE ENERO DE 2020.]
 Ley publicada en el Boletín Oficial del Estado de Sonora, el viernes 31 de diciembre de 1976.
 LIC. ALEJANDRO CARRILLO MARCOR, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes, sabed:
 Que el H. Congreso del Estado, se ha servido dirigirme la siguiente Ley:
