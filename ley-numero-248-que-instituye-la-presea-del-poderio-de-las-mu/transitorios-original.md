@@ -1,0 +1,11 @@
+TRANSITORIOS
+ARTÍCULO PRIMERO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO SEGUNDO.- Dentro de los diez naturales siguientes a la entrada en vigor de la presente Ley, la o el Presidente del Congreso del Estado, deberá de integrar el Comité Calificador a que se hace referencia en el artículo 7 de la presente Ley.
+ARTÍCULO TERCERO.- Por única ocasión, la entrega de las preseas para reconocer a las mujeres destacadas en el año 2020 en las diversas categorías previstas en la presente Ley, será el día 08 de marzo de 2021.
+La Comisión para la Igualdad de Género del Congreso del Estado, emitirá la Convocatoria a que hace referencia el artículo 3 de la presente Ley, en la última semana del mes de febrero del año 2021.
+Para la elección de las ciudadanas que recibirán las preseas, se deberán respetar los plazos señalados en la presente Ley, excepto la fecha de entrega de la emisión de la convocatoria y la de la entrega de las preseas.
+La entrega de preseas se realizará a más tardar en la segunda sesión ordinaria a aquella en la que se aprobó el dictamen en el que determinó las ciudadanas que recibirán la distinción por parte de este Congreso.
+ARTÍCULO CUARTO.- El Congreso del Estado, deberá considerar dentro de su presupuesto para el ejercicio fiscal 2021, una partida suficiente para los gastos de las preseas y estímulos económicos a las mujeres galardonadas.
+Comuníquese a la Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado.- SALON DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 18 de febrero de 2021. C. MA. MAGDALENA URIBE PEÑA, DIPUTADA PRESIDENTA.- RÚBRICA.- C. FERMÍN TRUJILLO FUENTES, DIPUTADO SECRETARIO.- RÚBRICA.- C. LETICIA CALDERÓN FUENTES, DIPUTADA SECRETARIA.- RÚBRICA.
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, al (sic) veintidós días de febrero del año dos mil veintiuno.- GOBERNADORA DEL ESTADO. CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- MIGUEL ERNESTO POMPA CORELLA.- RÚBRICA.
