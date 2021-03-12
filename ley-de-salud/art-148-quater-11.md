@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 11 DE MARZO DE 2021)
+ARTICULO 148 QUATER 11.- En casos de urgencia médica, y que exista incapacidad del enfermo en situación terminal para expresar su consentimiento, y en ausencia de familiares, representante legal, tutor o persona de confianza, la decisión de aplicar un procedimiento médico quirúrgico o tratamiento necesario, será tomada por el médico especialista y/o por el Comité de Bioética de la institución.
