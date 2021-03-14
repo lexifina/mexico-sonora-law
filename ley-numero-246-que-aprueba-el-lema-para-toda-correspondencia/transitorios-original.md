@@ -1,0 +1,6 @@
+TRANSITORIOS
+ARTÍCULO PRIMERO.- La presente Ley entrará en vigor el día 01 de enero del 2021, previa su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO SEGUNDO.- Se abrogan todas y cada (sic) de las leyes mediante las cuales se aprobaron los lemas emitidos con anterioridad a la presente Ley y el Acuerdo número 378, aprobado por la Diputación Permanente del Congreso del Estado de Sonora el día 13 de enero de 2021.
+Comuníquese a la Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado.- SALON DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 04 de febrero de 2021. C. MA. MAGDALENA URIBE PEÑA, DIPUTADA PRESIDENTA.- RÚBRICA.- C. FERMÍN TRUJILLO FUENTES, DIPUTADO SECRETARIO.- RÚBRICA.- C. LETICIA CALDERÓN FUENTES, DIPUTADA SECRETARIA.- RÚBRICA.
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, al (sic) diecisiete días de febrero del año dos mil veintiuno.- GOBERNADORA DEL ESTADO.- CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- MIGUEL ERNESTO POMPA CORELLA.- RÚBRICA.

@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Toda correspondencia oficial que generen, durante el año 2021, los poderes Ejecutivo, Legislativo y Judicial del Estado, así como los ayuntamientos, deberá incluir el lema: "2021: Año de las Trabajadoras y Trabajadores de la Salud".
