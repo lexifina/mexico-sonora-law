@@ -11,6 +11,6 @@ V.- Exista algún dato que establezca que hubo alguna amenaza relacionada con el
 VI.- La víctima haya sido incomunicada, cualquiera que sea el tiempo, previo a la privación de la vida;
 VII.- El cuerpo de la víctima sea expuesto o exhibido en un lugar público; o
 VIII.- Quien se aproveche del estado de indefensión o falta de apoyo de una mujer que se encuentra sola, ya sea por la dificultad de comunicación para recibir auxilio, por razón de la distancia a un lugar habitado o porque exista algún impedimento físico o material para solicitar el auxilio.
-(REFORMADO, B.O. 5 DE MARZO DE 2020)
-A quien cometa el delito de feminicidio se le impondrán (sic) de cuarenta y cinco a sesenta y cinco años de prisión y multa de mil a mil quinientas Unidades de Medida y Actualización.
+(REFORMADO, B.O. 16 DE MARZO DE 2021)
+A quien cometa el delito de feminicidio se le impondrán de cuarenta y cinco a setenta años de prisión y multa de dos mil a cinco mil Unidades de Medida y Actualización.
 Además de las sanciones descritas en el presente artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluidos los de carácter sucesorio.

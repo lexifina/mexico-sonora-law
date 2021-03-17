@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 16 DE MARZO DE 2021)
+ARTICULO 341 BIS.- A quien realice la quema de esquilmos o gavilla, sin autorización de la autoridad competente se impondrá una pena de prisión de dos a seis años y una multa de mil a dos mil quinientas Unidades de Medida y Actualización.
+La pena prevista en el párrafo anterior se aumentará hasta una tercera parte, cuando quien cometa el delito sea servidor público cuya obligación sea proteger el medio ambiente y que, teniendo conocimiento de este ilícito, omita realizar las funciones propias de su encargo para prevenir, solucionar y sancionar al responsable.

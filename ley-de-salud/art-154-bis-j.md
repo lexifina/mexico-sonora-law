@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 16 DE MARZO DE 2021)
+ARTICULO 154 BIS J.- La donación de plasma con fines terapéuticos, a pacientes infectados de COVID-19 por parte de pacientes recuperados es voluntaria y deberá realizarse en los establecimientos de salud públicos y privados autorizados por la Secretaría, de conformidad a las disposiciones legales y las normas oficiales expedidas por la Secretaría de Salud para tal efecto.

@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 9 DE ABRIL DE 2018)
-ARTICULO 258 BIS 1.- Cuando el delito al que se refiere el presente capítulo, sea cometido en estado de embriaguez o bajo el influjo de estupefacientes, psicotrópicos o cualquier otra substancia que afecte las facultades psicomotrices, la sanción será de 4 a 7 años de prisión y multa de 50 a 250 Unidades de Medida y Actualización.
+(REFORMADO, B.O. 16 DE MARZO DE 2021)
+ARTICULO 258 BIS 1.- Cuando el delito al que se refiere el presente capítulo, sea cometido en fines de semana, días festivos y/o días de asueto, o en eventos públicos, en estado de embriaguez o bajo el influjo de estupefacientes, psicotrópicos o cualquier otra substancia que afecte las facultades psicomotrices, la sanción será de 6 a 9 años de prisión y multa de 100 a 500 Unidades de Medida y Actualización.

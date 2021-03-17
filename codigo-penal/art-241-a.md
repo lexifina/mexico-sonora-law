@@ -1,0 +1,4 @@
+(ADICIONADO, B.O. 16 DE MARZO DE 2021)
+ARTICULO 241-A.- Comete Delito de Desplazamiento Forzado Interno, el que sin derecho ni fundamento legal alguno, mediante violencia o cualquier otro medio coactivo, obligue a una persona o a un grupo de personas para que abandonen su lugar de residencia, se aplicará prisión de dos a ocho años y una multa de ciento cincuenta a trecientas veces el valor diario de la Unidad de Medida y Actualización.
+Cuando el delito en referencia sea cometido en contra de menores de edad, adultos mayores, personas con alguna discapacidad física o mental, defensores de los derechos humanos y periodistas, la sanción se aumentará hasta en una mitad.
+No se entenderá por desplazamiento forzado el movimiento de población que realice la autoridad cuando tenga por objeto la seguridad de la población.

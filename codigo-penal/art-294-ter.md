@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 26 DE DICIEMBRE DE 2008)
-ARTÍCULO 294 TER.- Las penas previstas en el artículo 294 de este Código, se aumentarán en una mitad cuando el delito fuere cometido en el interior de las instituciones de educación básica, media superior, superior o en sus inmediaciones.
+(REFORMADO, B.O. 16 DE MARZO DE 2021)
+ARTICULO 294 TER.- Las penas previstas en el artículo 294 de este Código, se aumentarán en una mitad cuando el delito fuere cometido contra una persona migrante o extranjero, indígena, discapacitada, en condiciones de pobreza extrema, menor de edad o mujer embarazada, así mismo si el delito se comete en el interior de las instituciones educativas o en sus inmediaciones.

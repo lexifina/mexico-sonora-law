@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 16 DE MARZO DE 2021)
+ARTICULO 193 BIS.- Se sancionará con una pena de dos a cuatro años de prisión y una multa de cincuenta a doscientas Unidades de Medida y Actualización y destitución para desempeñar un empleo, cargo o comisión públicos, a quién, en su carácter de servidor público, exponga, difunda, transmita, enajene, o publicite por cualquier medio imágenes, fotos, videos, audios o datos derivados de la comisión de un delito de los cuales tenga conocimiento en razón de su cargo.

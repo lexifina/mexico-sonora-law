@@ -1,2 +1,4 @@
 (REFORMADO, B.O. 9 DE ABRIL DE 2018)
 ARTICULO 312 BIS.- Se considera que comete el delito de abigeato y se sancionará con las mismas penas establecidas para el abigeato en el artículo 312, al que se apodere de una o más cabezas o practique cacería furtiva de borrego cimarrón uoviscanadenis, venado cola blanca uodocoileusvirginianus, venado bura u odocoileushemionus, berrendo o antilocapra americana, o de jabalí de collar o dycotilestajacu, siempre que se trate de semovientes ajenos.
+(ADICIONADO, B.O. 16 DE MARZO DE 2021)
+Se considera también que comete el delito de abigeato y se sancionará con las mismas penas para el abigeato en el artículo 312, a quien, con ánimo de dominio, lucro o uso, se apodere de una o más colonias de abejas en un apiario, así como sus productos, total o parcialmente, sin el consentimiento de quien legalmente pueda disponer de los mismos con arreglo a la ley.
