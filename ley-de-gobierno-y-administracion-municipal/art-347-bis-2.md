@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 1 DE OCTUBRE DE 2020) (F. DE E., B.O. 11 DE FEBRERO DE 2021)
+Artículo 347 Bis 2.- En relación con las disposiciones contenidas en el artículo anterior, así como en lo establecido en el artículo 210 de la Ley de Seguridad Pública para el Estado de Sonora, los integrantes del Ayuntamiento deberán analizar trimestralmente el seguimiento y avance de las medidas implementadas, para lo cual, se anotará en el orden del día de la sesión que corresponda.
