@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 16 DE MARZO DE 2021)
+Artículo 40 Quater.- El Instituto Superior de Auditoría y Fiscalización, otorgará capacitación en el manejo de la cuenta pública municipal, por lo menos, al Tesorero Municipal, al Titular del Órgano de Control y Evaluación Gubernamental y al titular de la dependencia de obras públicas municipales, dentro de un plazo no mayor a sesenta días posteriores a la instalación del Ayuntamiento, a la cual deberán de asistir de manera obligatoria.
