@@ -1,0 +1,4 @@
+(ADICIONADO, B.O. 4 DE MAYO DE 2021)
+ARTÍCULO 70 BIS 1.- Los elementos del Catálogo Cultural del Estado de Sonora deberán organizarse de una manera sencilla que facilite su consulta por parte del público, clasificándose por apartados atendiendo a lo dispuesto en el artículo 70 BIS.
+Cada uno de los elementos del Catálogo Cultural del Estado de Sonora a que se refieren las fracciones de la I a la XII del artículo 70 BIS, deberá contar con una descripción detallada con fotografías ilustrativas y su ubicación georreferenciada en los casos que aplique.
+En el caso de los padrones a que se refieren las fracciones del IX al XII del artículo 70 BIS, se incluirá el nombre completo del artesano o del prestador de servicios culturales, su domicilio y datos de contacto, y una descripción detallada de los servicios que ofrece, considerando para ello las diversas disposiciones jurídicas estatales y federales en materia de protección de datos personales.
