@@ -1,5 +1,4 @@
 LEY DEL SERVICIO CIVIL PARA EL ESTADO DE SONORA
-[N. DE E. LA FE DE ERRATAS PUBLICADA EN EL B.O. EL 11 DE FEBRERO DE 2021 NO APLICA AL ARTICULADO DEL DECRETO PUBLICADO EN EL B.O. DE 1 DE OCTUBRE DE 2020.]
 Ley publicada en el Alcance del Boletín Oficial del Estado de Sonora, el sábado 27 de agosto de 1977.
 EL C. LIC. ALEJANDRO CARRILLO MARCOR, GOBERNADOR DEL ESTADO LIBRE Y SOBERANO DE SONORA, a sus habitantes, sabed:
 Que el H. Congreso del Estado, se ha servido dirigirme la siguiente L E Y :

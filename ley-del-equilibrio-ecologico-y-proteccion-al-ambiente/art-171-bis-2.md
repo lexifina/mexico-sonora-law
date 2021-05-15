@@ -1,0 +1,12 @@
+(ADICIONADO, B.O. 14 DE MAYO DE 2021)
+ARTÍCULO 171 BIS 2.- En materia de prevención y control de la contaminación lumínica, los municipios tendrán las siguientes facultades:
+I.- Participar en la elaboración del Programa para la Prevención y Control de la Contaminación Lumínica, en apego a lo dispuesto en esta Ley, en la Ley General y las Normas Oficiales Mexicanas;
+II.- Promover las disposiciones de protección ambiental para evitar la contaminación lumínica, en el ámbito de su competencia, en particular;
+a) La regulación de los establecimientos mercantiles o de servicios;
+b) En materia de alumbrado público;
+c) En materia de edificaciones;
+d) En materia de imagen urbana, y
+e) En general aquellas que pudieran generar contaminación lumínica.
+III.- Integrar y mantener actualizado el inventario de luminarias y coordinarse con el gobierno estatal para la integración del inventario en el estado;
+IV.- Promover campañas y actividades de capacitación, difusión y sensibilización sobre la importancia de prevenir la contaminación lumínica; y
+V.- Promover convenios de colaboración con organismos e instituciones de investigación local, nacional e internacional, interesadas en la preservación de la calidad de la atmósfera.

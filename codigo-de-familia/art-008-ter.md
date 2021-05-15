@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 14 DE MAYO DE 2021)
+Artículo 8 TER.- Los integrantes de la familia, en particular niñas, niños y adolescentes, tienen derecho a que los demás miembros les respeten su integridad física, psíquica y emocional, con objeto de contribuir a su sano desarrollo para su plena incorporación y participación en el núcleo social. Al efecto, contará con la asistencia y protección de las instituciones pública (sic) de acuerdo con las leyes.
