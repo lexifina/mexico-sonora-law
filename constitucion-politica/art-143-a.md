@@ -1,3 +1,4 @@
+(DEROGADO CUARTO PÁRRAFO, B.O. 4 DE NOVIEMBRE DE 2021)
 (ADICIONADO, B.O. 28 DE NOVIEMBRE DE 2016)
 Artículo 143 A. El Sistema Estatal Anticorrupción es la instancia de coordinación entre las autoridades de todos los órdenes de gobierno competentes en la prevención, detección y sanción de responsabilidades administrativas y hechos de corrupción, así como en la fiscalización y control de recursos públicos. Para el cumplimiento de su objeto se sujetará a las siguientes bases mínimas:
 (REFORMADA, B.O. 13 DE ENERO DE 2017)
