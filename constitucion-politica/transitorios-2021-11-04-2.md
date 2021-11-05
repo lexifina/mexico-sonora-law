@@ -1,0 +1,4 @@
+B.O. 4 DE NOVIEMBRE DE 2021.
+[N. DE E. TRANSITORIO DEL "LEY NÚMERO 3, QUE REFORMA EL ARTÍCULO 29 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SONORA".]
+ARTÍCULO ÚNICO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora, previo cómputo que se realice de la aprobación o rechazo que emitan los ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente Ley, para los efectos dispuestos por el artículo 163 de la Constitución Política del Estado de Sonora.
+Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que realicen el cómputo respectivo y en su caso de resultar aprobada la presente Ley por las dos terceras partes de los ayuntamientos de los Municipios del Estado, la remitan al titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
