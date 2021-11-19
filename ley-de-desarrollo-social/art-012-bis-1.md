@@ -5,5 +5,9 @@ II.- Servicios básicos en la vivienda;
 III.- Rezago en educación;
 IV.- Acceso a los servicios de salud;
 V.- Apoyo en alimentación;
-VI.- Inclusión en cuanto a seguridad social; y
-VII.- Apoyo para mejora en ingreso y/o empleo.
+(REFORMADA, B.O. 18 DE NOVIEMBRE DE 2021)
+VI.- Inclusión en cuanto a seguridad social;
+(REFORMADA, B.O. 18 DE NOVIEMBRE DE 2021)
+VII.- Apoyo para mejora en ingreso y/o empleo; y
+(ADICIONADA, B.O. 18 DE NOVIEMBRE DE 2021)
+VIII.- Empoderamiento de la mujer, igualdad sustantiva e igualdad salarial.
