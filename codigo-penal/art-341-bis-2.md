@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 30 DE DICIEMBRE DE 2021)
+ARTICULO 341 BIS 2.- Cuando en los delitos previstos en este título participe algún servidor público del Estado o de los Municipios, las penas previstas se aumentarán de tres hasta cinco años de prisión y multa de quinientas hasta cinco mil quinientas veces el valor diario de la Unidad de Medida y Actualización vigente y, además, se impondrá destitución, en su caso, e inhabilitación de uno a diez años, para desempeñar otro empleo, cargo o comisión públicas.

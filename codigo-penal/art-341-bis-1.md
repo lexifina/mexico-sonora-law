@@ -1,0 +1,5 @@
+(ADICIONADO, B.O. 30 DE DICIEMBRE DE 2021)
+ARTICULO 341 BIS 1.- A quien dentro de los límites de los centros de población derribe u ordene derribar parcialmente un árbol, o realice u ordene realizar, la poda de más del 30% de su follaje, sin el permiso de la autoridad competente, se le aplicará de diez a cien jornadas de trabajo a favor de la comunidad y de cincuenta a cien Unidades de Medida y Actualización.
+Para los efectos de este artículo, se entiende por árbol la especie vegetal que tiene un tronco columnar de naturaleza leñosa de más de 1.5 metros de altura del cual parten ramas que constituyen su follaje o copa.
+El trabajo a favor de la comunidad, en este delito, consistirá en actividades relacionadas con la limpieza, protección, restauración, mejoramiento del ambiente y la conservación de los recursos naturales.
+Cuando el derribo del árbol sea total y éste tenga más de 1.5 metros de altura o más de dos años de vida, se le aplicará de 3 meses a 3 años de prisión y de 30 a cien Unidades de Medida y Actualización; así como la reparación del daño.
