@@ -1,0 +1,11 @@
+TRANSITORIOS
+Artículo Primero.- La presente Ley entrará en vigor el día 1 de enero de 2022, previa su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+Artículo Segundo.- Durante la vacatiolegis, los ayuntamientos llevarán a cabo acciones de promoción y socialización de las disposiciones contenidas en esta Ley, a través de sus áreas ambientales y de inspección y vigilancia, en comercios, restaurantes, tiendas departamentales y demás, así como con el comercio ambulante.
+Durante dicho periodo los ayuntamientos pondrán en práctica planes piloto de separación de residuos en zonas habitacionales, comercios y oficinas con el objeto de promover una cultura de separación de estos materiales, tanto separación primaria como secundaria.
+Artículo Tercero.- La Comisión implementará un programa de difusión de las disposiciones contenidas en esta Ley y de las implicaciones que tiene para las empresas que producen empaques y bolsas de plástico, productos de plástico de un solo uso, y grandes generadores.
+Artículo Cuarto.- El titular del Poder Ejecutivo del Estado contará con un plazo no mayor a 120 días hábiles a partir de la publicación de esta Ley, para elaborar el Reglamento de esta Ley.
+Artículo Quinto.- Los ayuntamientos contarán con un plazo no mayor a 120 días hábiles a partir de la publicación de esta Ley para adecuar sus reglamentos en materia ambiental a efecto de armonizarlos a las disposiciones contenidas en esta Ley.
+Artículo Sexto.- Las disposiciones contenidas en la fracción XVIII del artículo 4 entrarán en vigor a partir del año 2024.
+Comuníquese a la Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado.- SALON DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 13 de abril de 2021. C. ROSA ICELA MARTINEZ ESPINOZA, DIPUTADA PRESIDENTA.- RÚBRICA.- C. MARCIA LORENA CAMARENA MONCADA, DIPUTADA SECRETARIA.- RÚBRICA.- C. MARIA TERESA PERALTA QUIJANO, DIPUTADA SECRETARIA.- RÚBRICA.
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los veintiséis días de abril del año dos mil veintiuno.- GOBERNADORA DEL ESTADO.- CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- JUAN ÁNGEL CASTILLO TARAZÓN.- RÚBRICA.
