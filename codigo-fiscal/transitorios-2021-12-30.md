@@ -1,0 +1,6 @@
+B.O. 30 DE DICIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 15, QUE REFORMA, DEROGA Y ADICIONA DIVERSAS DISPOSICIONES FISCALES".]
+Artículo Primero.- El presente decreto entrará en vigor en el Estado de Sonora a partir del 01 de enero de 2022, previa publicación en el Boletín Oficial del Estado de Sonora.
+Artículo Segundo.- Los juicios contenciosos administrativos que se hubieran interpuesto antes de la entrada en vigor de la Ley de Justicia Administrativa del Estado de Sonora, se tramitarán y resolverán de conformidad con lo establecido en el Título Sexto del Código Fiscal del Estado de Sonora vigente en el momento de la presentación de la demanda.
+Artículo Tercero.- Los juicios de nulidad que se hubieran interpuesto a partir de la entrada en vigor de la Ley de Justicia Administrativa para el Estado de Sonora, se tramitarán y resolverán de acuerdo con lo dispuesto en esa misma Ley, por lo que las leyes que remitan a los artículos comprendidos del 196 al 251, contenidos en el Título Sexto del Código Fiscal del Estado de Sonora que se deroga, se entenderán referidos a los correlativos de la Ley de Justicia Administrativa del Estado de Sonora.
+Artículo Cuarto.- Se derogan todas aquellas disposiciones que se opongan a la presente Ley.
