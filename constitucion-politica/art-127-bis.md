@@ -5,7 +5,8 @@ I. Estudiar, promover, divulgar y proteger, con base en los principios que rigen
 II. Contribuir al fortalecimiento de las convicciones humanistas, sociales y democráticas del estado constitucional de derecho; y
 III. Coadyuvar al establecimiento de las garantías necesarias para asegurar que los Derechos Humanos de las personas que se encuentren en el territorio del Estado de Sonora, sean reales, equitativos y efectivos.
 La Comisión se integrará por un Presidente, una Secretaría Ejecutiva, Visitadores Generales, así como Visitadores Adjuntos y el personal profesional, técnico y administrativo necesario para la realización de sus funciones.
-La Comisión, para el mejor desempeño de sus responsabilidades, contará con un Consejo Consultivo, el cual será electo en los términos de la Ley reglamentaria que para sus alcances y efectos legales el Congreso apruebe.
+(REFORMADO, B.O. 20 DE ABRIL DE 2022)
+La Comisión, para el mejor desempeño de sus responsabilidades, contará con un Consejo Consultivo, el cual será electo en los términos de la Ley reglamentaria que para sus alcances y efectos legales el Congreso apruebe. De igual manera, contará con un Órgano Interno de Control, cuyo titular será designado conforme a lo dispuesto en la fracción XV del artículo 64 de esta Constitución.
 El Congreso del Estado, aprobará una Ley complementaria en materia de Derechos Humanos, que regule el funcionamiento y actuación de la Comisión Estatal de Derechos Humanos para el Estado de Sonora.
 El Presidente de la Comisión deberá reunir para su designación los siguientes requisitos:
 A) Ser ciudadano mexicano por nacimiento, en pleno ejercicio de sus derechos civiles y políticos;
