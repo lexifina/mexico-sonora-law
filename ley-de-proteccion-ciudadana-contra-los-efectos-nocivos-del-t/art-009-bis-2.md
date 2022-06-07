@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 6 DE JUNIO DE 2022)
+Artículo 9 BIS 2.- Los contenedores de recolección deberán llenarse únicamente hasta el 80% de su capacidad. Posteriormente, se procederá al vaciado de las colillas de cigarro en las cubetas de almacenamiento y transportación, las que se deberán resguardar temporalmente en un área destinada dentro de los límites del establecimiento en la que esperarán a reunirse la cantidad necesaria por el centro de acopio autorizado que se tenga contratado.
