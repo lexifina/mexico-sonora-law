@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 11 DE ENERO DE 1982)
-Artículo 111-E.- Para la atención de las labores Administrativas propias del funcionamiento del Fondo, el Presidente de la Comisión Ejecutiva designará un auxiliar que se denominará Vocal Ejecutivo de la Comisión.
+(REFORMADO, B.O. 7 DE JULIO DE 2022)
+ARTÍCULO 111-E.- Para la atención de las labores administrativas propias del funcionamiento del Fondo, el Director General del Instituto será el Vocal Ejecutivo de la Comisión.
