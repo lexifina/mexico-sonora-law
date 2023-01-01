@@ -1,3 +1,4 @@
+(DEROGADO CUARTO PÁRRAFO, B.O. 30 DE DICIEMBRE DE 2022)
 (ADICIONADO, B.O. 27 DE DICIEMBRE DE 2019)
 Artículo 218 Bis 3.- Se otorga un estímulo fiscal a los contribuyentes que apoyen económicamente al Fondo para el fomento del deporte, establecido en la Ley de la Cultura Física y Deporte del Estado de Sonora, así como a los deportistas sonorenses que cumplan con los requisitos establecidos en dicha ley, su reglamento y lineamientos aplicables para tal efecto.
 El estímulo fiscal consistirá en una reducción porcentual no mayor del quince por ciento en el pago del impuesto, mismo que deberá calcularse de manera proporcional a la aportación realizada.

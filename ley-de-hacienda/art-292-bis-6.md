@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, B.O. 24 DE DICIEMBRE DE 2020)
-Artículo 292 Bis-6.- Para el fortalecimiento y sostenimiento de los cuerpos de bomberos, se causará una cuota adicional en cantidad de $50.00 pesos por cada uno de los servicios prestados relativos a la expedición de placas de vehículos, revalidaciones, licencias para conducir y permisos.
+(REFORMADO PRIMER PÁRRAFO, B.O. 30 DE DICIEMBRE DE 2022)
+Artículo 292 BIS-6.- Para el fortalecimiento y sostenimiento de los cuerpos de bomberos, se causará una cuota adicional equivalente a 0.60 Unidades de Medida y Actualización (UMA), por cada uno de los servicios prestados relativos a la expedición de placas de vehículos, revalidaciones, licencias para conducir y permisos.
 (REFORMADO [N. DE E. ESTE PÁRRAFO], B.O. 30 DE DICIEMBRE DE 2021)
 Para los efectos del cobro de esta contribución, únicamente habrá de incluirse en los servicios siguientes:
 (ADICIONADO, B.O. 8 DE MARZO DE 2018)

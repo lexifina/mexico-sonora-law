@@ -8,8 +8,7 @@ El presente estímulo será otorgado de conformidad con los lineamientos que al 
 La Secretaría de Hacienda hará efectivo el estímulo mediante la selección del mismo, al rendir la declaración correspondiente.
 (REFORMADO, B.O. 31 DE JULIO DE 2018)
 La Secretaría de Hacienda otorgará anualmente este beneficio de hasta el 8% del impuesto presupuestado en la Ley de Ingresos del Estado del ejercicio correspondiente.
-(REFORMADO, B.O. 31 DE DICIEMBRE DE 2012)
-El otorgamiento del estímulo en el pago del impuesto a que se refiere el presente artículo, no exime el pago del impuesto para el sostenimiento de las Universidades de Sonora y de la contribución para el Consejo Estatal de Concertación para la Obra Pública ni las Contribuciones para el Fortalecimiento de la Infraestructura Educativa.
+(DEROGADO SEXTO PÁRRAFO, B.O. 30 DE DICIEMBRE DE 2022)
 (DEROGADO SÉPTIMO PARRAFO, B.O. 24 DE DICIEMBRE DE 2018)
 (ADICIONADO, B.O. 15 DE ENERO DE 2009)
 El beneficio que se confiere en el presente artículo no otorga a los contribuyentes el derecho de devolución, ni será aplicable en los accesorios en caso de que estos se hubieren causado.
@@ -34,8 +33,7 @@ El beneficio fiscal señalado en el presente artículo, no será acumulable con 
 (DEROGADO DÉCIMO SÉPTIMO PÁRRAFO, B.O. 24 DE DICIEMBRE DE 2020)
 (ADICIONADO, B.O. 15 DE DICIEMBRE DE 2014)
 El otorgamiento de los beneficios en el pago del impuesto a que se refiere el presente artículo, no exime el pago del impuesto para el sostenimiento de las Universidades de Sonora y de la contribución para el Consejo Estatal de Concertación para la Obra Pública ni las Contribuciones para el Fortalecimiento de la Infraestructura Educativa.
-(REFORMADO, B.O. 21 DE DICIEMBRE DE 2017)
-Los contribuyentes que accedan a los beneficios previstos en este artículo, deberán solicitar previamente autorización ante la Secretaría de Hacienda, y renovar su solicitud de forma trimestral.
+(DEROGADO DECIMONOVENO PÁRRAFO, B.O. 30 DE DICIEMBRE DE 2022)
 (ADICIONADO, B.O. 15 DE DICIEMBRE DE 2014)
 Los beneficios que se confieren en el presente artículo, no serán acumulables con otras reducciones establecidas en las disposiciones fiscales, ni darán lugar a la compensación o devolución alguna, ni serán aplicables en los accesorios en caso de que estos se hubieren causado.
 (ADICIONADO, B.O. 21 DE DICIEMBRE DE 2017)
