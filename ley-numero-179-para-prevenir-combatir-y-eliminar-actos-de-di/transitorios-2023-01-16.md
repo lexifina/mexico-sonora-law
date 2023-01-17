@@ -1,0 +1,3 @@
+B.O. 16 DE ENERO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 97, QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DEL ARTÍCULO 9 DE LA LEY PARA PREVENIR, COMBATIR Y ELIMINAR ACTOS DE DISCRIMINACIÓN EN EL ESTADO DE SONORA".]
+ARTÍCULO ÚNICO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.

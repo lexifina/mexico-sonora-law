@@ -6,7 +6,8 @@ IV.- Alentar la formación de alianzas estratégicas;
 V.- Promover la generación de un pensamiento crítico en los estudiantes y fomentar en estos la creatividad y la innovación;
 VI.- Impulsar una educación que contribuya a la formación de estudiantes preparados para los grandes cambios que se presentan en la actualidad;
 VII.- Fomentar una cultura de la innovación basada en la ciencia y la tecnología para contribuir efectivamente en la transformación de su entorno, así como encontrar solución a las distintas problemáticas regionales, nacionales e internacionales;
-VIII.- Fomentar en los estudiantes de todos los niveles una cultura de responsabilidad social y conciencia hacia el medio ambiente;
+(REFORMADA, B.O. 16 DE ENERO DE 2023)
+VIII.- Fomentar en los estudiantes de todos los niveles una cultura de responsabilidad social y conciencia hacia el medio ambiente, principalmente, a través de actividades prácticas de plantación, cuidado, protección y conservación de árboles y reforestación en general;
 IX.- Promover la articulación entre los niveles educativos de Educación Básica, Media Superior y Superior;
 X.- Proponer y promover el reforzamiento de los programas encaminados a brindar orientación vocacional a los estudiantes;
 XI.- Proponer y promover en la medida de lo posible, la compatibilidad de los planes de estudio de las instituciones educativas de la Entidad, con los de instituciones educativas de distintos países, teniendo como fin el logro de una Certificación de Competencias multinacionales;
