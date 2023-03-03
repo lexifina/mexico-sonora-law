@@ -5,7 +5,8 @@ FEMINICIDIO
 ARTICULO 263 Bis 1.- Comete el delito de feminicidio quien prive de la vida a una mujer por razones de género. Se considera que existen razones de género, cuando concurra alguno de los siguientes supuestos:
 I.- La víctima presente algún signo de violencia sexual de cualquier tipo;
 II.- A la víctima se le hayan infligido lesiones o mutilaciones infamantes o degradantes, previas o posteriores a la privación de la vida o actos de necrofilia;
-III.- Existan antecedentes o datos de cualquier tipo de violencia, en cualquier ámbito, del sujeto activo en contra de la víctima;
+(REFORMADA, B.O. 2 DE MARZO DE 2023)
+III.- Existan antecedentes o datos de cualquier tipo de violencia, en cualquier ámbito incluidas las herramientas de comunicación digital personal, del sujeto activo en contra de la víctima;
 IV.- Haya existido entre el activo y la víctima una relación sentimental, afectiva o de confianza;
 V.- Exista algún dato que establezca que hubo alguna amenaza relacionada con el hecho delictuoso, acoso o lesiones del sujeto activo en contra de la víctima.
 VI.- La víctima haya sido incomunicada, cualquiera que sea el tiempo, previo a la privación de la vida;
