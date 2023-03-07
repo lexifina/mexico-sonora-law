@@ -3,7 +3,7 @@ I.- Operar como vínculo entre los diversos sectores, a fin de priorizar estrate
 II.- Recomendar políticas públicas estatales en materia de vinculación;
 III.- Definir las prioridades de acción y construir acuerdos, que permitan avanzar hacia la articulación sobre el quehacer de las Instituciones de Educación Superior y de los sectores;
 IV.- Alentar la formación de alianzas estratégicas;
-V.- Promover la generación de un pensamiento crítico en los estudiantes y fomentar en estos la creatividad y la innovación;
+V.- Promover la generación de un pensamiento crítico en los estudiantes y formentar en estos la creatividad y la innovación;
 VI.- Impulsar una educación que contribuya a la formación de estudiantes preparados para los grandes cambios que se presentan en la actualidad;
 VII.- Fomentar una cultura de la innovación basada en la ciencia y la tecnología para contribuir efectivamente en la transformación de su entorno, así como encontrar solución a las distintas problemáticas regionales, nacionales e internacionales;
 (REFORMADA, B.O. 16 DE ENERO DE 2023)

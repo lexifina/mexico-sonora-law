@@ -1,0 +1,2 @@
+Artículo 19 BIS.- En educación básica, a fin de lograr el mejor aprovechamiento académico de los alumnos con barreras para el aprendizaje y la participación, la Secretaria, de acuerdo a la suficiencia presupuestaria correspondiente, deberá promover la participación de maestros y maestras de intervención o sombra, para lo cual podrá hacer uso de esquemas de servicio social y normal de especialización, a fin de cubrir la demanda de esta figura.
+Otros Criterios de la educación

@@ -1,5 +1,5 @@
 Artículo 47 BIS 3.- El Consejo Estatal de Vinculación tendrá las siguientes atribuciones:
-I.- Evaluar los planes y programas de estudio con el fin (sic) revisar sus alcances y determinar las áreas de mejora de los mismos;
+I.- Evaluar los planes y programas de estudio con el fin de revisar sus alcances y determinar las áreas de mejora de los mismos;
 II.- Formar comisiones especiales para la evaluación y análisis de la pertinencia de los planes y programas de estudio, así como emitir opinión sobre las propuestas de nuevas carreras en función de las vocaciones productivas regionales y de los sectores estratégicos para el desarrollo de la Entidad, así como de la necesidad de dar solución a problemáticas sociales apremiantes;
 III.- Proponer a la autoridad educativa competente, los cambios que considere necesarios en los planes y programas de estudio con el fin de que estos den respuesta a las necesidades de las diferentes industrias regionales, nacionales e internacionales, y coadyuven en la solución de problemáticas sociales apremiantes;
 IV.- Coadyuvar con la autoridad educativa competente, cuando esta se lo solicite, en la formulación de programas educativos afines con su objeto:
