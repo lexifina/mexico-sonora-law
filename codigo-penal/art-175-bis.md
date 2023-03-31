@@ -1,6 +1,6 @@
-(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, B.O. 19 DE DICIEMBRE DE 2016)
+(REFORMADA SU DENOMINACIÓN, B.O. 30 DE MARZO DE 2023)
 CAPITULO V
-DISCRIMINACIÓN
+DISCRIMINACIÓN Y LIBRE DESARROLLO DE LA PERSONALIDAD, SEXUALIDAD, ORIENTACIÓN SEXUAL, IDENTIDAD Y EXPRESIÓN DE GÉNERO DE LAS PERSONAS
 (REFORMADO PRIMER PÁRRAFO, B.O. 6 DE MARZO DE 2023)
 ARTICULO 175 BIS.- Se aplicará sanción de uno a cuatro años de prisión o de ciento cincuenta a trescientos días de trabajo a favor de la comunidad y multa de hasta cuatrocientas unidades de medida y actualización al que por razones de origen o pertenencia étnica o nacional, raza, color de piel, lengua, género, sexo, preferencia sexual, edad, estado civil, origen nacional o social, profesión, condición social o económica, condición de salud, embarazo, opiniones políticas o de cualquier otra índole atente contra la dignidad humana o anule o menoscabe los derechos y libertades de las personas mediante la realización de cualquiera de las siguientes conductas:
 (ADICIONADA, B.O. 19 DE DICIEMBRE DE 2016)
