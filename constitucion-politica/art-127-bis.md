@@ -8,13 +8,17 @@ La Comisión se integrará por un Presidente, una Secretaría Ejecutiva, Visitad
 (REFORMADO, B.O. 20 DE ABRIL DE 2022)
 La Comisión, para el mejor desempeño de sus responsabilidades, contará con un Consejo Consultivo, el cual será electo en los términos de la Ley reglamentaria que para sus alcances y efectos legales el Congreso apruebe. De igual manera, contará con un Órgano Interno de Control, cuyo titular será designado conforme a lo dispuesto en la fracción XV del artículo 64 de esta Constitución.
 El Congreso del Estado, aprobará una Ley complementaria en materia de Derechos Humanos, que regule el funcionamiento y actuación de la Comisión Estatal de Derechos Humanos para el Estado de Sonora.
-El Presidente de la Comisión deberá reunir para su designación los siguientes requisitos:
+(REFORMADO [N. DE E. ESTE PÁRRAFO], B.O. 7 DE JUNIO DE 2023)
+La o el Presidente de la Comisión deberá reunir para su designación los siguientes requisitos:
 A) Ser ciudadano mexicano por nacimiento, en pleno ejercicio de sus derechos civiles y políticos;
-B) No haber sido sentenciado por la comisión de delitos dolosos;
+(REFORMADO, B.O. 7 DE JUNIO DE 2023)
+B) No haber sido persona sentenciada por la comisión de delitos dolosos; para lo cual deberán gozar de buena reputación; no haber sido persona sancionada o condenada mediante resolución firme por violencia familiar o cualquier agresión de género en el ámbito privado o público; por delitos sexuales contra la libertad sexual o la intimidad corporal; y no ser deudor alimentario moroso, salvo que acredite estar al corriente del pago o que cancele en su totalidad la deuda, y que no cuente con registro vigente en algún padrón de deudores alimenticios.
 C) Poseer en la fecha de su nombramiento con antigüedad mínima de cinco años, título profesional legalmente expedido que lo acredite como licenciado en derecho o demostrada capacidad y experiencia en la defensa y promoción de los derechos humanos;
 D) No haber sido Titular del Poder Ejecutivo, Secretario, Diputado Local, Presidente Municipal, Fiscal General de (sic) Del Estado, Magistrado del Supremo Tribunal de Justicia, un año previo a su designación;
 E) Gozar de reconocido prestigio profesional, personal en la entidad; y
 F) No haber participado como candidato a puesto de elección popular, ser o haber sido presidente de algún partido político.
+(ADICIONADO, B.O. 7 DE JUNIO DE 2023)
+G) No pertenecer al estado eclesiástico ni ser ministro de ningún culto.
 (REFORMADO, B.O. 30 DE ENERO DE 1984)
 TITULO QUINTO.
 MUNICIPIO LIBRE.
