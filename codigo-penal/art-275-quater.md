@@ -1,0 +1,4 @@
+(ADICIONADO, B.O. 7 DE JULIO DE 2023)
+ARTICULO 275 QUATER.- A quien cometa el delito de sumisión química se le aplicará de cuatro a diez años de prisión y multa de veinte a doscientas unidades de medida y actualización. Lo anterior, sin perjuicio de las penas que correspondan a otros delitos que se cometiesen sobre la víctima de sumisión química.
+Si el autor del delito fuese persona empleada o colaboradora del establecimiento destinado a la venta y consumo de bebidas alcohólicas en donde se cometió el delito de sumisión química, o se tratase de un proveedor de servicios de dicho establecimiento, la pena se aumentare en una mitad.
+Si quien prestase ayuda o auxilio al autor, coautor o cómplice del delito de sumisión química, fuese empleado o colaborador de un establecimiento destinado a la venta y consumo de bebidas alcohólicas o de un proveedor de servicios de dicho establecimiento, la pena se aumentará en un tercio.
