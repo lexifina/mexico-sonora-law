@@ -1,0 +1,5 @@
+B.O. 13 DE JULIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 135, QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY DE EDUCACIÓN DEL ESTADO DE SONORA Y DE LA LEY DEL INSTITUTO DE BECAS Y CRÉDITO EDUCATIVO DEL ESTADO DE SONORA".]
+ARTÍCULO PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTICULO SEGUNDO.- La Secretaría de Educación y Cultura, y el Instituto de Becas y Crédito Educativo del Estado de Sonora, deberá realizar los cambios a sus disposiciones normativas y reglamentarias en los términos señalados en el presente decreto, dentro de los 90 días naturales contados a partir de su entrada en vigor.
+ARTÍCULO TERCERO.- La Secretaría de Educación y Cultura, y el Instituto de Becas y Crédito Educativo del Estado de Sonora, en coordinación con la Secretaría de Hacienda, deberán implementar de manera gradual el sistema universal de becas a que se refiere el presente Decreto, sujetándose a metas de corto, mediano y largo plazo, a efecto de garantizar el equilibrio y balance sostenible de las finanzas públicas del Estado.

@@ -1,3 +1,4 @@
+(REFORMADO PRIMER PÁRRAFO, B.O. 13 DE JULIO DE 2023)
+Artículo 45 BIS.- Para el caso de alumnos inscritos en el nivel superior que requieran desplazarse a lugares distintos de su residencia para realizar sus estudios dentro del territorio estatal y que sean de escasos recursos económicos, el Instituto destinará una reserva presupuestal específica para el otorgamiento de becas.
 (ADICIONADO, B.O. 23 DE JULIO DE 2020)
-Artículo 45 BIS.- Para el caso de alumnos inscritos en el nivel superior que requieran desplazarse a lugares distintos de su residencia para realizar sus estudios y que sean de escasos recursos económicos, el Instituto destinará una reserva presupuestal específica para el otorgamiento de becas.
 El monto a que hace alusión el párrafo anterior deberá ser determinado por el Instituto por sí mismo y en coordinación con la Secretaría de Hacienda del Estado al momento de formular el proyecto de presupuesto de Egresos y la Ley de Ingresos para cada ejercicio fiscal, tomando en cuenta los criterios estadísticos que genera el propio Instituto, así como las consideraciones expuestas en su Plan Operativo Anual.
