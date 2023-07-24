@@ -1,5 +1,6 @@
 [N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CÓDIGO PENAL PARA EL ESTADO DE SONORA
+[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL BOLETIN OFICIAL DEL 24 DE JULIO DE 2023.]
 Código publicado en la Sección Primera del Boletín Oficial del Estado de Sonora, el jueves 24 de marzo de 1994.
 EL C. LIC. MANLIO FABIO BELTRONES RIVERA, Gobernador Constitucional del Estado Libre y Soberano de Sonora, a sus habitantes, sabed:
 Que el H. Congreso del Estado, se ha servido dirigirme la siguiente L E Y:
