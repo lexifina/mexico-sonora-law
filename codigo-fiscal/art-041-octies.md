@@ -4,7 +4,8 @@ En estos casos se dará aviso por escrito, inmediatamente, al colegio profesiona
 I.- Procede la amonestación cuando el contador público registrado:
 a) No proporcione o presente incompleta la información a que se refieren las leyes aplicables.
 La amonestación se aplicará por cada dictamen formulado en contravención a las disposiciones jurídicas aplicables, independientemente del ejercicio fiscal de que se trate y las sanciones correspondientes se acumularán;
-b) No hubiera integrado en el dictamen la información que para efectos del proceso de envío se determine en las reglas generales administrativas que emita la Secretaría de Hacienda.
+(REFORMADO, B.O. 28 DE DICIEMBRE DE 2023)
+b) No hubiera integrado en el dictamen la información que para efectos del proceso de presentación se determine en las Reglas de carácter general que emita la Secretaría de Hacienda.
 En este caso, la amonestación se aplicará por cada dictamen en el que no se hubiera integrado la información que corresponda, independientemente del ejercicio fiscal de que se trate y las sanciones correspondientes se acumularán, y
 II.- Procede la suspensión de la inscripción:
 a) De un año a tres años cuando el contador público inscrito:

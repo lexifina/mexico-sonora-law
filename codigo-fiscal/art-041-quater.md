@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 26 DE DICIEMBRE DE 2016)
-ARTÍCULO 41 QUÁTER.- Los contribuyentes que opten por presentar el dictamen, deberán hacerlo ante las autoridades fiscales a más tardar en el último día hábil del mes de julio del ejercicio siguiente del que se dictamina, en los términos y con los datos e informes que al respecto se señale en las disposiciones administrativas que al efecto publique la Secretaría de Hacienda.
+(REFORMADO, B.O. 28 DE DICIEMBRE DE 2023)
+ARTÍCULO 41 QUÁTER.- Los contribuyentes que estén obligados a presentar el dictamen y los que opten por presentarlo, deberán hacerlo de manera impresa, ante las autoridades fiscales a más tardar en el último día hábil del mes de julio del ejercicio siguiente del que se dictamina, en los términos y con los datos e informes que al respecto se señale en las reglas de carácter general que al efecto publique la Secretaría de Hacienda, de conformidad con lo dispuesto en el artículo 41 SEPTIES de esta Ley.
