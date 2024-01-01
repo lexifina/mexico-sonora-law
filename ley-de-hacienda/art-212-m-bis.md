@@ -1,2 +1,2 @@
-(ADICIONADO, B.O. 30 DE DICIEMBRE DE 2010)
-Artículo 212-M BIS.- Son sujetos de este impuesto las personas físicas, morales o unidades económicas sin personalidad jurídica, que en el territorio del Estado realicen las actividades de prestación de servicios a que se refiere el artículo 212-M de esta Ley.
+(REFORMADO, B.O. 28 DE DICIEMBRE DE 2023)
+Artículo 212-M BIS.- Son sujetos de este impuesto las personas físicas, morales o unidades económicas sin personalidad jurídica, que en el territorio del Estado realicen las actividades de prestación de servicios a que se refiere el artículo 212-M de esta Ley, independientemente de que se trate de administradores, organizadores, anfitriones de algún establecimiento donde se lleve a cabo la prestación de los servicios. Son también sujetos de este impuesto las personas que paguen premios, cuando sean distintas de las mencionadas en este artículo.
