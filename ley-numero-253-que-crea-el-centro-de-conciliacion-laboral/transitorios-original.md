@@ -12,3 +12,4 @@ ARTÍCULO DÉCIMO.- El Poder Ejecutivo Estatal y el H. Congreso del Estado de So
 Comuníquese a la Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado.- SALON DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 20 de abril de 2021. C. ROSA ICELA MARTINEZ ESPINOZA, DIPUTADA PRESIDENTA.- RÚBRICA.- C. MARCIA LORENA CAMARENA MONCADA, DIPUTADA SECRETARIA.- RÚBRICA.- C. MARIA TERESA PERALTA QUIJANO, DIPUTADA SECRETARIA.- RÚBRICA.
 Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
 Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los cuatro días de mayo del año dos mil veintiuno.- GOBERNADORA DEL ESTADO.- CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- JUAN ÁNGEL CASTILLO TARAZÓN.- RÚBRICA.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMA AL PRESENTE ORDENAMIENTO.]
