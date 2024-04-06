@@ -1,0 +1,9 @@
+[N. DE E. DE CONFORMIDAD CON EL TRANSITORIO PRIMERO DEL PRESENTE ORDENAMIENTO ENTRA EN VIGOR A LOS 60 DÍAS NATURALES POSTERIORES A SU PUBLICACIÓN.]
+LEY DEL NOTARIADO PARA EL ESTADO DE SONORA
+Ley publicada en la Sección II del Número 11 del Boletín Oficial del Estado de Sonora, el martes 6 de febrero de 2024.
+FRANCISCO ALFONSO DURAZO MONTAÑO, Gobernador del Estado Libre y Soberano de Sonora, a sus habitantes sabed:
+Que el honorable Congreso del Estado, se ha servido dirigirme el siguiente:
+Ley
+NÚMERO 175
+EL H. CONGRESO DEL ESTADO LIBRE Y SOBERANO DE SONORA, EN NOMBRE DEL PUEBLO, TIENE A BIEN EXPEDIR LA SIGUIENTE:
+LEY DEL NOTARIADO PARA EL ESTADO DE SONORA

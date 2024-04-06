@@ -1,0 +1,12 @@
+TRANSITORIOS
+ARTÍCULO PRIMERO.- La presente Ley entrará en vigor a los 60 días naturales posteriores a su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTÍCULO SEGUNDO.- A la entrada en vigor de la presente Ley, se abroga la Ley número 163, publicada en el Boletín Oficial del Gobierno del Estado el día 4 de enero de 1996, así como las reformas y adiciones que se hayan publicado en el mismo Boletín Oficial.
+ARTÍCULO TERCERO.- Los procedimientos administrativos iniciados antes de la entrada en vigor de esta Ley, se tramitarán y resolverán de conformidad con la Ley que se abroga.
+ARTÍCULO CUARTO.- Las Notarías Públicas existentes con anterioridad a la entrada en vigencia de la presente Ley subsistirán dentro de la demarcación notarial que le asignó el Ejecutivo.
+ARTÍCULO QUINTO.- Los Notarios Públicos que actualmente se encuentren con licencia se incorporaran a su notaría dentro de las cuarenta y ocho horas posteriores a la conclusión de la misma.
+ARTÍCULO SEXTO.- La Dirección General, de acuerdo a la disponibilidad presupuestaria, deberá realizar las acciones necesarias para cumplir lo establecido en las disposiciones previstas en esta Ley relativas al Protocolo, Folio y almacenamiento Electrónico.
+La Dirección General a través de su director general, tendrá un plazo de 180 días naturales para elaborar los lineamientos para la elaboración, entrega, uso y resguardo de lo establecido en el párrafo anterior.
+ARTÍCULO SÉPTIMO.- El estatuto del Colegio de Notarios del Estado de Sonora, deberá adecuarse a lo dispuesta en esta Ley y publicarse en el Boletín Oficial en un término que no deberá exceder de 180 días hábiles, posteriores al inicio de la vigencia de la Ley.
+Comuníquese al Titular de1 Poder Ejecutivo para sanción y publicación en el Boletín Oficial del Gobierno del Estado.- SALON DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, a 05 de diciembre de 2023. C. CLAUDIA ZULEMA BOURS CORRAL, DIPUTADA PRESIDENTA, RÚBRICA.- C. LUIS ARTURO ROBLES HIGUERA, DIPUTADO SECRETARIO.- RÚBRICA.- C. JOSÉ RAFAEL RAMÍREZ MORALES, DIPUTADO SECRETARIO.- RÚBRICA.
+Por tanto, mando se publique en el Boletín Oficial del Gobierno, del Estado y se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la Ciudad de Hermosillo, Sonora, a los siete días del mes de diciembre del año dos mil veintitrés.- GQBERNADOR DEL ESTADO.- FRANCISCO ALFONSO DURAZO MONTAÑO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- ADOLFO SALAZAR RAZO.- RÚBRICA.
