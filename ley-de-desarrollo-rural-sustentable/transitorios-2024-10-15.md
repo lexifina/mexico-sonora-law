@@ -1,0 +1,4 @@
+B.O. 15 DE OCTUBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 176, QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES A LA LEY DE DESARROLLO RURAL SUSTENTABLE DEL ESTADO DE SONORA, DE LA LEY DE GANADERÍA PARA EL ESTADO DE SONORA, Y DE LA LEY DE FOMENTO COOPERATIVO PARA EL ESTADO DE SONORA".]
+ARTICULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
+ARTICULO SEGUNDO.- Se derogan todas las disposiciones que se opongan al presente Decreto.

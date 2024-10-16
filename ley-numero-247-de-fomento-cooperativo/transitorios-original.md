@@ -7,3 +7,4 @@ ARTÍCULO QUINTO.- El Gobierno del Estado de Sonora adecuará dentro de los 15 d
 Comuníquese a la Titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado.- SALON DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 18 de febrero de 2021. C. MA. MAGDALENA URIBE PEÑA, DIPUTADA PRESIDENTA.- RÚBRICA.- C. FERMÍN TRUJILLO FUENTES, DIPUTADO SECRETARIO.- RÚBRICA.- C. LETICIA CALDERÓN FUENTES, DIPUTADA SECRETARIA.- RÚBRICA.
 Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
 Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, al (sic) veintidós días de febrero del año dos mil veintiuno.- GOBERNADORA DEL ESTADO.- CLAUDIA ARTEMIZA PAVLOVICH ARELLANO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- MIGUEL ERNESTO POMPA CORELLA.- RÚBRICA.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
