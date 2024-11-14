@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 13 DE NOVIEMBRE DE 2024)
+ARTICULO 50 BIS 2.- Durante el trabajo de parto y el puerperio, incluyendo los casos en los que haya muerte fetal o perinatal, las mujeres tendrán derecho a ser acompañadas por la persona de su confianza y elección, salvo por razones de seguridad sanitaria o porque se derive de ello un riesgo clínicamente justificado, en cuyo caso deberá facilitarse la comunicación remota.
