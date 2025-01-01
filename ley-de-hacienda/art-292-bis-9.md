@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 27 DE DICIEMBRE DE 2024)
+Artículo 292 Bis-9.- Se causará una cuota adicional al Impuesto Sobre Remuneraciones al Trabajo Personal, equivalente al 1% calculada sobre la base establecida en el artículo 214 de esta ley, con la finalidad de fortalecer a las instituciones de seguridad pública, procuración e impartición de justicia, evaluación de la acción gubernamental en la materia, la corresponsabilidad ciudadana frente al delito y para promover la competitividad del Estado.

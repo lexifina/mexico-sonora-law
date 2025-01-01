@@ -1,1 +1,1 @@
-ARTICULO SEGUNDO.- Los recursos administrativos y juicios de nulidad que al 31 de diciembre de 1999 se hubieren interpuesto contra resoluciones dictadas por autoridades fiscales, serán concluidos por estas en los términos de las disposiciones vigentes con anterioridad a la fecha en que entre en vigor el presente Código.
+ARTICULO SEGUNDO.- La presente Ley entrará en vigor a partir de la fecha de su publicación en el Periódico Oficial del Estado.

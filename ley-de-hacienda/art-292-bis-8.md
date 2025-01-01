@@ -5,5 +5,6 @@ De los recursos que se recauden por la presente contribución, el 100% se entreg
 En caso de que un ayuntamiento cuente con más de un cuerpo de bomberos reconocido, se procederá a la repartición del recurso económico de manera proporcional al número de elementos que integre cada cuerpo de bomberos.
 En caso de que un ayuntamiento no cuente con un cuerpo de bomberos reconocido, se procederá a entregar los recursos recaudados al cuerpo o cuerpos de bomberos del municipio más cercano que brinde los servicios, conforme se establezca en reglas de carácter general que emita la Secretaría de Hacienda.
 El ayuntamiento, organismo, patronato o cualquier otro tipo de organización pública o privada, que actuando como intermediario de los cuerpos de bomberos, reciba los recursos a que se refiere este capítulo, deberá rendir un informe pormenorizado del destino de dichos recursos al Congreso del Estado de Sonora, dentro de los 30 días siguientes de haberlos recibido.
-Capítulo Cuarto
-Otras Contribuciones
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, B.O. 27 DE DICIEMBRE DE 2024)
+Capítulo III Bis 3
+Contribución para el Fortalecimiento de las Instituciones de Seguridad Pública, Procuración e Impartición de Justicia y para Promover la Competitividad del Estado

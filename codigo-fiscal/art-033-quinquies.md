@@ -1,5 +1,0 @@
-(ADICIONADO, B.O. 28 DE DICIEMBRE DE 2023)
-ARTÍCULO 33 QUINQUIES.- Los representantes legales, socios y accionistas de las personas morales, así como las personas que hubiesen adquirido sus acciones a través de mercados reconocidos o de amplia bursatilidad y dichas acciones se consideren colocadas entre el gran público inversionista, siempre que, en este último de (sic) supuesto, el socio o accionista no hubiere solicitado su registro en el libro de socios y accionistas, tendrán las siguientes obligaciones:
-I.- Solicitar la inscripción en el Registro Estatal de Contribuyentes.
-II.- Proporcionar en el Registro Estatal de Contribuyentes, la información relacionada con la identidad, domicilio y, en general, sobre la situación fiscal, mediante los avisos que se establecen en este Código, así como registrar y mantener actualizada una sola dirección de correo electrónico y un número telefónico del contribuyente, o bien, los medios de contacto que determine la autoridad fiscal en sus formatos oficiales.
-III.- Manifestar al Registro Estatal de Contribuyentes el domicilio fiscal.
