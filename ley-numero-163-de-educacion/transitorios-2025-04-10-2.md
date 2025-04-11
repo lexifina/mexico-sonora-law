@@ -1,0 +1,5 @@
+B.O. 10 DE ABRIL DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 38, QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY DE EDUCACIÓN DEL ESTADO DE SONORA".]
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Estado de Sonora.
+ARTÍCULO SEGUNDO.- En un plazo de 60 días naturales a partir de la entrada en vigor del presente Decreto, la Secretaría de Educación y Cultura deberá emitir su opinión a la autoridad educativa federal solicitándole que se actualicen y modifiquen los planes y programas de estudio de educación básica que se imparten en nuestro Estado, a efecto de que se incluyan contenidos regionales en los que se inculque la cultura del cuidado del agua y se imparta educación sobre su uso responsable.
+Con la opinión a que se refiere el párrafo anterior, la Secretaría de Educación y Cultura deberá presentar una propuesta que contenga el plan y programa de estudios con contenidos regionales en los que se inculque la cultura del cuidado del agua y se imparta educación sobre su uso responsable, para cuya elaboración deberá convocar a académicos y expertos en la materia.
