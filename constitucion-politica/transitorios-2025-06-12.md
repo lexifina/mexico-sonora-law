@@ -1,0 +1,4 @@
+B.O. 12 DE JUNIO DE 2025.
+[N. DE E. TRANSITORIO DE LA "LEY NÚMERO 77, QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES A LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE SONORA".]
+ARTÍCULO ÚNICO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Sonora, previo cómputo que se realice de la aprobación o rechazo que emitan los ayuntamientos del Estado, a quienes se les deberá notificar los términos de la presente Ley, para los efectos dispuestos por el artículo 163 de la Constitución Política del Estado de Sonora.
+Se instruye a la Mesa Directiva o a la Diputación Permanente del Congreso del Estado, en su caso, a efecto de que realice el cómputo respectivo, y en caso de resultar aprobada la presente Ley por la mayoría de los ayuntamientos del Estado, la remita al titular del Poder Ejecutivo para su publicación en el Boletín Oficial del Gobierno del Estado de Sonora.
