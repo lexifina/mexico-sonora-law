@@ -1,8 +1,8 @@
 (DEROGADO CUARTO PÁRRAFO, B.O. 4 DE NOVIEMBRE DE 2021)
 (ADICIONADO, B.O. 28 DE NOVIEMBRE DE 2016)
 Artículo 143 A. El Sistema Estatal Anticorrupción es la instancia de coordinación entre las autoridades de todos los órdenes de gobierno competentes en la prevención, detección y sanción de responsabilidades administrativas y hechos de corrupción, así como en la fiscalización y control de recursos públicos. Para el cumplimiento de su objeto se sujetará a las siguientes bases mínimas:
-(REFORMADA, B.O. 13 DE ENERO DE 2017)
-I.- El Sistema contará con un Comité Coordinador que estará integrado por los titulares del Instituto Superior de Auditoría y Fiscalización; de la Fiscalía Especializada Anticorrupción; de la Secretaría del Ejecutivo del Estado responsable del control interno; por el presidente del Tribunal de Justicia Administrativa; el presidente del organismo garante que establece el artículo 2, Apartado A de esta Constitución; así como por un representante del Consejo del Poder Judicial del Estado y otro del Comité de Participación Ciudadana;
+(REFORMADA, B.O. 12 DE JUNIO DE 2025)
+I.- El Sistema contará con un Comité Coordinador que estará integrado por las y los titulares del Instituto Superior de Auditoría y Fiscalización; de la Fiscalía Especializada Anticorrupción; de la Secretaría del Ejecutivo del Estado responsable del control interno; por el presidente del Tribunal de Justicia Administrativa; así como por un representante del Consejo del Poder Judicial del Estado y otro del Comité de Participación Ciudadana;
 (REFORMADA [N. DE E. REPUBLICADA], B.O. 13 DE ENERO DE 2017)
 II.- El Comité de Participación Ciudadana del Sistema deberá integrarse por cinco ciudadanos que se hayan destacado por su contribución a la transparencia, la rendición de cuentas o el combate a la corrupción y serán designados en los términos que establezca la ley; y
 III.- Corresponderá al Comité Coordinador del Sistema, en los términos que determine la Ley:
