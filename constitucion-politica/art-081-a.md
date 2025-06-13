@@ -1,3 +1,2 @@
-(DEROGADO CUARTO PÁRRAFO, B.O. 4 DE NOVIEMBRE DE 2021)
 (REFORMADO, B.O. 5 DE ABRIL DE 2006)
 Artículo 81 A. Para ser Secretario de Gobierno deben reunirse los mismos requisitos que para ser Gobernador del Estado. Para ser Secretario de Despacho se requiere ser mexicano por nacimiento, estar en ejercicio de sus derechos y acreditar que, después de haber adquirido la ciudadanía, durante un plazo mínimo de cinco años, se ha desempeñado en la academia, ha ejercido una profesión liberal o técnica, un oficio privado o un cargo público.
