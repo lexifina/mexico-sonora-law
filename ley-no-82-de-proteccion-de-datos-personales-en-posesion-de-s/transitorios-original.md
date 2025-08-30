@@ -1,0 +1,6 @@
+TRANSITORIOS
+ARTÍCULO PRIMERO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Estado.
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Protección de Datos Personales en Posesión de Sujetos Obligados del Estado de Sonora, publicada en el Boletín Oficial del Estado, número 10, Sección I, de fecha 3 de agosto de 2017 con sus modificaciones posteriores, y se derogan todas las disposiciones contenidas en las leyes secundarias y quedan sin efectos los reglamentos, acuerdos y disposiciones de carácter general contrarias a la presente Ley.
+Comuníquese al Titular. del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado. SALÓN DE SESIONES DEL H. CONGRESO DEL ESTADO; Hermosillo, Sonora, 29 de agosto de 2025.- C. OMAR FRANCISCO DEL VALLE COLOSIO, DIPUTADO PRESIDENTE, RÚBRICA.- C. MARÍA EDUWIGES ESPINOZA TAPIA, DIPUTADA SECRETARIA, RÚBRICA.- C. JESÚS MANUEL SCOTT SÁNCHEZ, DIPUTADO SECRETARIO, RÚBRICA.-
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los veintinueve días del mes de agosto del año dos mil veinticinco.- GOBERNADOR DEL ESTADO.- DR FRANCISCO ALFONSO DURAZO MONTAÑO.- RÚBRICA.SECRETARIO DE GOBIERNO.- LIC. ADOLFO SALAZAR RAZO. RÚBRICA.
