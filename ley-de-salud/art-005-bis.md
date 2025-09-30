@@ -7,8 +7,12 @@ a). El presidente de la Comisión de Salud del Congreso del Estado;
 b). Un representante de la Secretaría de Salud Federal;
 c). Un representante del Instituto Mexicano del Seguro Social;
 d). Un representante del Instituto de Seguridad y Servicios Sociales de los Trabajadores del Estado de Sonora (ISSSTESON);
-e). Un representante de la Comisión Contra Riesgos Sanitarios del Estado de Sonora;
-f). El Director del Hospital General del Estado;
+(REFORMADO, B.O. 29 DE SEPTIEMBRE DE 2025)
+e). Una persona representante de los Servicios de Salud del Instituto Mexicano del Seguro Social para el Bienestar (IMSS-Bienestar);
+f). (DEROGADO, B.O. 29 DE SEPTIEMBRE DE 2025)
 g). Un representante del Instituto de Seguridad y Servicios Sociales de los Trabajadores del Estado (ISSSTE);
-h). Un representante de la Secretaría de Seguridad Pública del Estado de Sonora; y
-IV.- Un representante de la Secretaría de la Defensa Nacional, con el carácter de Invitado.
+h). (DEROGADO, B.O. 29 DE SEPTIEMBRE DE 2025)
+(REFORMADA, B.O. 29 DE SEPTIEMBRE DE 2025)
+IV.- Una persona representante de la Secretaría de la Defensa Nacional, con el carácter de Invitada; y
+(ADICIONADA, B.O. 29 DE SEPTIEMBRE DE 2025)
+V.- Un Secretario o Secretaria Técnica quién será designada por el Titular del Poder Ejecutivo del Estado de Sonora a propuesta del Titular de la Secretaría de Salud.
