@@ -1,0 +1,13 @@
+TRANSITORIOS
+ARTÍCULO PRIMERO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Estado de Sonora.
+ARTÍCULO SEGUNDO.- Se abroga la Ley de las y los jóvenes del Estado de Sonora, publicada en el Boletín Oficial del Gobierno del Estado de Sonora, número 50, sección IV, de fecha 22 de diciembre de 2014, así como todas aquellas disposiciones que contravengan lo establecido en esta Ley.
+ARTÍCULO TERCERO.- El Instituto tendrá un máximo de 365 días a partir de la publicación del presente ordenamiento, para hacer las adecuaciones a los documentos de planeación y presupuestales respectivos.
+ARTÍCULO CUARTO.- El Instituto tendrá un máximo de 60 días a partir de la publicación del presente ordenamiento, para instalar la Coordinación Sectorial para las Juventudes.
+ARTÍCULO QUINTO.- El Instituto tendrá un máximo de 60 días a partir de la publicación del presente ordenamiento, para instalar el Consejo de Participación de las Juventudes.
+ARTÍCULO SEXTO.- El Instituto tendrá un máximo de 120 días a partir de la publicación del presente ordenamiento, para instalar el Sistema para el Bienestar de las Juventudes.
+ARTÍCULO SÉPTIMO.- Los asuntos que a la entrada en vigor de la presente Ley, se encuentren en trámite ante el Instituto Sonorense de la Juventud, continuarán rigiéndose hasta su conclusión por las disposiciones legales que les dieron origen.
+ARTÍCULO OCTAVO.- Las relaciones laborales de los trabajadores con que cuente el Instituto Sonorense de la Juventud, a la entrada en vigor de la presente Ley, no se verán afectadas en modo alguno, cualquiera que sea su naturaleza, y continuarán rigiéndose por las disposiciones que les dieron origen.
+ARTÍCULO NOVENO.- Con la previa revisión y aprobación de la Junta de Gobierno, el Instituto tendrá un máximo de 60 días a partir de la publicación del presente ordenamiento, para emitir su Reglamento Interior.
+Comuníquese al Titular del Poder Ejecutivo para su sanción y publicación en el Boletín Oficial del Gobierno del Estado. SALÓN DE SESIONES DEL H. CONGRESO DEL ESTADO. Hermosillo, Sonora, 23 de abril de 2024.- C. BEATRIZ COTA PONCE, DIPUTADA PRESIDENTA, RÚBRICA.- C. IRAM LEOBARDO SOLIS GARCÍA, DIPUTADO SECRETARIO, RÚBRICA.- C. JOSÉ RAFAEL RAMÍREZ MORALES, DIPUTADO SECRETARIO, RÚBRICA.-
+Por tanto, mando se publique en el Boletín Oficial del Gobierno del Estado y se le dé el debido cumplimiento.
+Dado en la Residencia del Poder Ejecutivo, en la ciudad de Hermosillo, Sonora, a los cinco días del mes de septiembre del año dos mil veinticinco.- GOBERNADOR DEL ESTADO.- DR. FRANCISCO ALFONSO DURAZO MONTAÑO.- RÚBRICA.- SECRETARIO DE GOBIERNO.- LIC. ADOLFO SALAZAR RAZO.- RÚBRICA.
