@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- Para los efectos del segundo párrafo del Artículo 19 de la Ley Orgánica del Tribunal de lo Contencioso- Administrativo del Estado de Sonora, las resoluciones se considerarán definitivas también en los casos de que la interposición del recurso administrativo sea opcional para el particular en los términos del presente Código.
