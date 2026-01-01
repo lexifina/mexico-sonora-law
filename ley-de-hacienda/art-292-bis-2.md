@@ -1,2 +1,4 @@
 (REFORMADO, B.O. 27 DE DICIEMBRE DE 2024)
 Artículo 292 Bis-2.- Toda la recaudación que por concepto de esta contribución se obtenga, será para conservar, crear, mantener y fortalecer la infraestructura educativa, equipamiento para la prestación del servicio de educación en todos los niveles, incluyendo el servicio de transporte escolar, el financiamiento del programa de apoyo escolar y cualquier otro rubro del sector educativo.
+(ADICIONADO, B.O. 12 DE DICIEMBRE DE 2025)
+La Secretaría de Hacienda descontará de los recursos que se obtengan por concepto de la Contribución para el Fortalecimiento de la Infraestructura Educativa, aquellas cantidades que por cualquier motivo el Estado haya devuelto a los contribuyentes causantes de la misma. Dicho descuento se efectuará a partir del mes siguiente a aquel en que se realice la devolución correspondiente.

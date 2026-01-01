@@ -1,2 +1,6 @@
 (REFORMADO, B.O. 28 DE DICIEMBRE DE 2023)
 Artículo 212-M BIS.- Son sujetos de este impuesto las personas físicas, morales o unidades económicas sin personalidad jurídica, que en el territorio del Estado realicen las actividades de prestación de servicios a que se refiere el artículo 212-M de esta Ley, independientemente de que se trate de administradores, organizadores, anfitriones de algún establecimiento donde se lleve a cabo la prestación de los servicios. Son también sujetos de este impuesto las personas que paguen premios, cuando sean distintas de las mencionadas en este artículo.
+(ADICIONADO, B.O. 12 DE DICIEMBRE DE 2025)
+Los operadores de las personas físicas y morales o unidades económicas sin personalidad jurídica y/o sin domicilio fiscal en el Estado deberán designar representante legal que fungirá como responsable solidario hasta por el monto del crédito fiscal y, se presumirá causado el impuesto derivado de sus actividades cuando las apuestas se realicen, los premios se generen y cualquiera de ellos se paguen como resultado de eventos o actividades efectuados dentro del territorio del Estado.
+(ADICIONADO, B.O. 12 DE DICIEMBRE DE 2025)
+Para el caso de operadores que no acrediten el pago del impuesto, se presumirá una base gravable del 70% del monto total de las apuestas recibidas.
