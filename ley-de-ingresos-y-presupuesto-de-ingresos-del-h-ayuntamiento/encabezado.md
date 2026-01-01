@@ -1,0 +1,2 @@
+LEY DE INGRESOS DE INGRESOS Y PRESUPUESTO DE INGRESOS DEL H. AYUNTAMIENTO DEL MUNICIPIO DE HUATABAMPO, SONORA, PARA EL EJERCICIO FISCAL DE 2026
+Ley publicada en el Número 51 Sección XVI del Boletín Oficial del Estado de Sonora, el viernes 26 de diciembre de 2025.
