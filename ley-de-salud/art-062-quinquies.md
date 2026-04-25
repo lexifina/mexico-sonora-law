@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 24 DE ABRIL DE 2026)
+ARTICULO 62 QUINQUIES.- Los programas de alimentación operados en centros educativos públicos, hospitales, centros de atención a grupos vulnerables o instituciones de reclusión deberán prever lineamientos y alternativas para la provisión de alimentos libres de gluten para personas diagnosticadas con enfermedad celíaca, conforme a los lineamientos técnicos emitidos por la autoridad competente.

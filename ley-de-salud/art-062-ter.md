@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 24 DE ABRIL DE 2026)
+ARTICULO 62 TER.- Las autoridades sanitarias estatales deberán realizar campañas permanentes de educación y sensibilización dirigidas a la población en general, al personal de salud y a los sectores educativo y alimentario, sobre la enfermedad celíaca y la importancia de una alimentación libre de gluten para quienes la padecen.
+Dichas campañas podrán difundirse a través de medios de comunicación, redes sociales, centros escolares y unidades de salud, y contemplarán la conmemoración del mes de mayo como Mes Estatal de la Conciencia sobre la Enfermedad Celíaca.

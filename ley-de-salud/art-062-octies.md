@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 24 DE ABRIL DE 2026)
+ARTICULO 62 OCTIES.- Se impulsará la creación de un registro estatal voluntario de personas con diagnóstico clínico de enfermedad celíaca, con el fin de facilitar la atención médica, el diseño de políticas públicas y la orientación de campañas de sensibilización, respetando en todo momento la protección de datos personales y confidencialidad de la información.
