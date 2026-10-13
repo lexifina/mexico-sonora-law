@@ -1,0 +1,6 @@
+(ADICIONADO, B.O. 13 DE OCTUBRE DE 2026)
+Artículo 267 Bis 2.- Tratándose de las concesiones a que se refiere el artículo 267 BIS de esta Ley, sin la autorización del Congreso del Estado no podrá expedirse el documento que contenga la concesión ni iniciarse la prestación del servicio público.
+Las concesiones que se otorguen en contravención de lo dispuesto en el párrafo anterior serán nulas de pleno derecho y no generarán derecho alguno a favor del concesionario, sin perjuicio de las responsabilidades en que incurran los servidores públicos que las hayan otorgado.
+Los puntos resolutivos de la autorización se publicarán por una sola vez en el Boletín Oficial del Gobierno del Estado.
+La autorización del Congreso del Estado no sustituye los permisos, licencias y demás autorizaciones que el concesionario deba obtener conforme a esta Ley y a las demás disposiciones aplicables, ni la que se requiera en materia de financiamientos y obligaciones.
+Se sujetarán a lo dispuesto en los artículos 267 BIS y 267 BIS I de esta Ley las modificaciones que amplíen el objeto de una concesión autorizada por el Congreso del Estado, así como las que amplíen el plazo de vigencia de cualquier concesión más allá del periodo constitucional del Ayuntamiento que las acuerde.
