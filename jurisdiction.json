@@ -1,0 +1,11 @@
+{
+  "path": "mx-son",
+  "code": "MX-SON",
+  "name": "Sonora",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-sonora-law",
+  "build": "built: constitution, codes and laws (141 ordenamientos, 1066 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
